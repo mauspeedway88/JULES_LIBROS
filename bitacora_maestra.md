@@ -9,6 +9,7 @@
 ## 2. TONO Y PERSONALIDAD NARRATIVA
 **El Narrador:** La voz y personalidad narrativa DEBE EMULAR ABSOLUTAMENTE el estilo del célebre predicador y conferencista Juan S. Boonstra.
 **Atributos del Tono:**
+* **ESTILO ESTRICTO:** El tono dramatúrgico, retórico y metafórico, estilo predicador radial evangelístico clásico latinoamericano, solemne, intenso, persuasivo, pausado, con frases contundentes y emocionalmente cargadas, estilo Juan S. Boonstra cuando predicaba en la radio: “La hora de la reforma”.
 * Timbre sobrio y reflexivo, tono pastoral reverente, ritmo pausado con variaciones controladas, dicción clara, articulación precisa.
 * Pausas estratégicas prolongadas con carga reflexiva, énfasis prosódico en palabras clave, prosodia reverente, proyección vocal serena con autoridad espiritual.
 * Intensidad emocional contenida con picos puntuales, modulación dinámica suave, respiración controlada en frases extensas, cadencia meditativa, velocidad variable según contenido.
@@ -33,11 +34,11 @@ Antes de escribir cualquier nuevo fragmento del libro, yo, como tu IA, debo ejec
 6. Escribir para avanzar: Ningún contenido debe ser "de relleno". Toda nueva sección debe sentirse como la continuación natural e inevitable del recorrido previo.
 
 ## 5. TRATO AL LECTOR (TUTEO)
-* **Tuteo Obligatorio:** A partir de ahora, el trato hacia el lector cambia permanentemente de "usted" a "tú" (y ocasionalmente "vos" como "acordate", "preferís", para mayor cercanía e impacto latinoamericano). Esto busca romper la barrera formal y generar una confrontación más íntima y directa. NUNCA volver a usar "usted", "su" o "le" formal.
+* **Tuteo Obligatorio Estricto:** A partir de ahora, el trato hacia el lector cambia permanentemente a "tú". Esto busca romper la barrera formal y generar una confrontación más íntima y directa. NUNCA volver a usar "usted", "su" o "le" formal. ESTÁ ESTRICTAMENTE PROHIBIDO el voseo (nunca decir "vos sos", "vos tenés", etc.). Únicamente tuteo ("tú eres", "tú tienes").
 
-## 6. LONGITUD Y RITMO DE LOS CAPÍTULOS
-* **Extensión requerida:** Cada capítulo debe tener aproximadamente 3500 palabras (unas 10-15 páginas).
-* **Progresión paciente (No adelantar el arco):** Está ESTRICTAMENTE PROHIBIDO saltar etapas. El Capítulo 1 DEBE hablar única y exclusivamente sobre LA LLAVE (JESÚS): por qué la entregó, cómo funciona, y el hecho de tenerla como adorno. NO se debe hablar aún del "problema" (eso es el Cap 2) ni de la "solución/abrir la puerta" (eso es el Cap 8). Expandir y reflexionar detenidamente sobre cada concepto sin precipitarse a resolver el conflicto.
+## 6. LONGITUD Y RITMO DE LOS CAPÍTULOS (ESTRATEGIA DE 8 ETAPAS)
+* **Extensión y División (Regla Muy Estricta):** Serán 8 capítulos en total. Cada capítulo debe tener aproximadamente 5300 palabras (unas 10 a 17 páginas). Para garantizar la calidad, evitar relleno y controlar el ritmo, **cada capítulo se redactará estrictamente en 8 etapas separadas** (aprox. 660 palabras por etapa).
+* **Progresión paciente (No adelantar el arco):** Está ESTRICTAMENTE PROHIBIDO saltar etapas. Cada etapa debe enfocarse profundamente en su objetivo psicológico y emocional sin apresurarse. El Capítulo 1 DEBE hablar única y exclusivamente sobre LA LLAVE (JESÚS): por qué la entregó, cómo funciona, y el hecho de tenerla como adorno. NO se debe hablar aún del "problema" (eso es el Cap 2) ni de la "solución/abrir la puerta" (eso es el Cap 8). Expandir y reflexionar detenidamente sobre cada concepto sin precipitarse a resolver el conflicto.
 
 ## 7. ARQUITECTURA NARRATIVA
 * Introducción — Fariseos Disfrazados y Cristianos Actores
