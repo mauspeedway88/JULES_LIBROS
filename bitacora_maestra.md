@@ -36,9 +36,16 @@ Antes de escribir cualquier nuevo fragmento del libro, yo, como tu IA, debo ejec
 ## 5. TRATO AL LECTOR (TUTEO)
 * **Tuteo Obligatorio Estricto:** A partir de ahora, el trato hacia el lector cambia permanentemente a "tú". Esto busca romper la barrera formal y generar una confrontación más íntima y directa. NUNCA volver a usar "usted", "su" o "le" formal. ESTÁ ESTRICTAMENTE PROHIBIDO el voseo (nunca decir "vos sos", "vos tenés", etc.). Únicamente tuteo ("tú eres", "tú tienes").
 
-## 6. LONGITUD Y RITMO DE LOS CAPÍTULOS (ESTRATEGIA DE 8 ETAPAS)
-* **Extensión y División (Regla Muy Estricta):** Serán 8 capítulos en total. Cada capítulo debe tener aproximadamente 5300 palabras (unas 10 a 17 páginas). Para garantizar la calidad, evitar relleno y controlar el ritmo, **cada capítulo se redactará estrictamente en 8 etapas separadas** (aprox. 660 palabras por etapa).
-* **Progresión paciente (No adelantar el arco):** Está ESTRICTAMENTE PROHIBIDO saltar etapas. Cada etapa debe enfocarse profundamente en su objetivo psicológico y emocional sin apresurarse. El Capítulo 1 DEBE hablar única y exclusivamente sobre LA LLAVE (JESÚS): por qué la entregó, cómo funciona, y el hecho de tenerla como adorno. NO se debe hablar aún del "problema" (eso es el Cap 2) ni de la "solución/abrir la puerta" (eso es el Cap 8). Expandir y reflexionar detenidamente sobre cada concepto sin precipitarse a resolver el conflicto.
+## 6. LONGITUD, RITMO Y ZONAS PROTEGIDAS (NUEVAS DIRECTRICES)
+* **Calidad y Densidad sobre Cantidad:** Serán 8 capítulos en total, estructurados en 8 etapas cada uno usando como base el documento `expansion_capitulos.md`. Aunque la meta referencial era amplia, **NO es obligatorio alcanzar exactamente 660 palabras por etapa**. Se priorizará SIEMPRE la densidad del texto, la calidad narrativa, el mensaje, la visión y el propósito espiritual por encima de la cantidad de palabras o caracteres.
+* **Progresión paciente (No adelantar el arco):** Está ESTRICTAMENTE PROHIBIDO saltar etapas. Cada etapa debe enfocarse profundamente en su objetivo psicológico y emocional sin apresurarse. 
+
+## 7. ZONAS PROTEGIDAS Y ESTADO DE LOS TEXTOS (REGLA INQUEBRANTABLE)
+* **Textos Finalizados (JAMÁS TOCAR NI MODIFICAR):** Las siguientes secciones ya están completas y aprobadas por el autor:
+  1. La Introducción.
+  2. El inicio del Capítulo 1.
+  3. La Etapa 8 del Capítulo 8 (La historia de Luis Mario).
+* **Textos por Ampliar:** Todo el resto del contenido (Capítulos 2, 3, 4, 5, 6, 7 y las primeras 7 etapas del Capítulo 8) será mejorado y ampliado siguiendo las directrices de esta bitácora y usando como esqueleto el archivo `expansion_capitulos.md`.
 
 ## 7. ARQUITECTURA NARRATIVA
 * Introducción — Fariseos Disfrazados y Cristianos Actores

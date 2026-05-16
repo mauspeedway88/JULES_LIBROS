@@ -13,18 +13,18 @@ Este documento es el GPS dinámico del proyecto. Se actualizará continuamente p
 * **Cap 7 — Estoy a la Puerta y Llamo:** Libre albedrío (Apocalipsis 3:20). Responsabilidad total.
 * **Cap 8 — El Nuevo Corazón:** El clímax. Apertura del cofre. Nuevo Nacimiento.
 
-## 2. ESTRATEGIA DE REDACCIÓN (NUEVA DIRECTRIZ)
-- **Metodología Estricta:** Cada capítulo se escribirá en **8 etapas** separadas (aprox. 660 palabras por etapa) para alcanzar las 5,300 palabras sin perder la densidad dramática ni usar relleno.
+## 2. ESTRATEGIA DE REDACCIÓN Y ZONAS PROTEGIDAS
+- **Prioridad de Calidad sobre Cantidad:** Cada capítulo del 2 al 7 (y las primeras 7 etapas del 8) se expandirá en **8 etapas** basándonos en `expansion_capitulos.md`. La extensión de 660 palabras por etapa **ya no es obligatoria**; la prioridad absoluta es la densidad del texto, el mensaje y el impacto emocional.
+- **Zonas Protegidas (NO TOCAR):** La Introducción, el inicio del Cap 1, y la Etapa 8 del Cap 8 están completas y aprobadas. Jamás se deben modificar.
 
 ## 3. LÍNEA DE TIEMPO ACTIVA (PASADO, PRESENTE, FUTURO)
 
 ### EL PASADO (Dónde nos quedamos)
-Se estableció la regla de 8 etapas por capítulo para no forzar la generación de texto. El borrador anterior del Capítulo 2 queda descartado para reescribirse con la nueva metodología. 
+El usuario creó un documento titánico (`expansion_capitulos.md`) con las 8 etapas detalladas para cada capítulo.
 
-### EL PRESENTE (Próximas acciones inmediatas - PLAN PARA EL INICIO DE MAÑANA)
-1. **Actualizar el Resumen:** Tomar `resumen_capitulos.md` y desglosar juntos cada capítulo en sus 8 etapas específicas.
-2. **Reescribir Final del Capítulo 1:** Añadir párrafos para mejorar la transición y el peso emocional.
-3. **Recrear Capítulo 2 (Etapa 1 de 8):** Iniciar la redacción del Cap 2 ("Domingos de Invierno") guiados paso a paso.
+### EL PRESENTE (Próximas acciones inmediatas - PLAN PARA HOY)
+1. **El Amarre del Capítulo 1:** Escribir un cierre fuerte de unas 450 a 600 palabras para el Capítulo 1, con el fin de conectar y hacer transición fluida hacia el Capítulo 2.
+2. **Expandir Etapas:** A partir de ahí, expandir y mejorar las etapas del Capítulo 2 usando el esqueleto, priorizando profundidad, densidad teológica y el estilo riguroso de Boonstra.
 
 ### EL FUTURO
 Avanzar etapa por etapa, capítulo por capítulo, asegurando que cada bloque mantenga el tono solemne y crudo de Juan S. Boonstra.
