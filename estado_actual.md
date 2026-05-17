@@ -20,14 +20,17 @@ Este documento es el GPS dinámico del proyecto. Se actualizará continuamente p
 ## 3. LÍNEA DE TIEMPO ACTIVA (PASADO, PRESENTE, FUTURO)
 
 ### EL PASADO (Dónde nos quedamos)
-El usuario creó un documento titánico (`expansion_capitulos.md`) con las 8 etapas detalladas para cada capítulo.
+- Se completó el Capítulo 1.
+- Se redactaron y aprobaron las Etapas 1 a 6 del Capítulo 2 en `capitulo 2 armandolo.md`.
+- Se integraron con éxito la Introducción, el Capítulo 1 y el Capítulo 2 (Etapas 1-6) en `MANUSCRITO_FINAL.md`.
+- Se realizó un backup cronológico en Git con la etiqueta `A06`.
 
 ### EL PRESENTE (Próximas acciones inmediatas - PLAN PARA HOY)
-1. **El Amarre del Capítulo 1:** Escribir un cierre fuerte de unas 450 a 600 palabras para el Capítulo 1, con el fin de conectar y hacer transición fluida hacia el Capítulo 2.
-2. **Expandir Etapas:** A partir de ahí, expandir y mejorar las etapas del Capítulo 2 usando el esqueleto, priorizando profundidad, densidad teológica y el estilo riguroso de Boonstra.
+1. **Modificación de los Capítulos 3 al 7 por el usuario:** El usuario está editando los esquemas de los Capítulos 3, 4, 5, 6 y 7 para saltear etapas, simplificar el libro y evitar repeticiones innecesarias.
+2. **A la espera del nuevo esqueleto:** Esperar que el usuario provea el orden y contenido modificado para proceder con el armado del Capítulo 2 Etapas 7-8 o el Capítulo 3 según corresponda.
 
 ### EL FUTURO
-Avanzar etapa por etapa, capítulo por capítulo, asegurando que cada bloque mantenga el tono solemne y crudo de Juan S. Boonstra.
+Avanzar con la integración y el pulido del texto basándonos en el nuevo esquema simplificado provisto por el usuario, manteniendo el tono de predicador radial, la densidad teológica, las zonas protegidas y la estricta regla de tuteo (sin "vos").
 
 ## 4. REGISTRO DE CONCEPTOS UTILIZADOS (Control de repetición)
 - Metáfora de "la llave como adorno o medalla" (Cap 1).
