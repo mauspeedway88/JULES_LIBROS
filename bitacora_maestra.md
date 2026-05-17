@@ -16,6 +16,7 @@ El texto debe transpirar esa intimidad, ese amor y esa comodidad, pero acompaña
 **Atributos del Tono:**
 * **Tensión Espiritual y Cercanía:** El tono es dramatúrgico, retórico y metafórico. Es el sonido del trueno, pero pronunciado con el brazo sobre el hombro del lector.
 * **Frases de Intimidad y Sacudida:** Uso constante de llamados de atención cercanos y confianzudos: "Escúchame bien amigo", "Querido amigo", "Mirá bien lo que te voy a decir", "Reaccioná", "¿Estás conmigo?", "¡Démosle pues!".
+* **Humor Coloquial Centroamericano (Uso Orgánico y Oportuno):** El autor mezcla estratégicamente la solemnidad de Boonstra con destellos de humor centroamericano crudo, auténtico y desarmante. Son frases que rompen la guardia del lector en el momento exacto en que más necesita escuchar la verdad. Ejemplos del ESTILO (no copiar literalmente, sino generar frases equivalentes cuando el momento lo pida orgánicamente): "calentando la banca de la iglesia con las nalgas", "ni la mamá de Tarzán hubiera creído eso", "tan grande es tu orgullo que hasta un oso se fuera de hocico si te viera". Estas frases NUNCA son vulgares, NUNCA usan "vos", y NUNCA se fuerzan — solo aparecen cuando el texto las pide naturalmente para bajar las defensas del lector y pegarle con la verdad desde la carcajada.
 * Pausas estratégicas prolongadas con carga reflexiva, énfasis prosódico en palabras clave, y proyección serena pero con altísima autoridad espiritual.
 * Cierre exhortativo fuerte, confrontativo pero profundamente pastoral, llevando siempre al lector hacia el espejo brutal de la verdad mientras se le extiende la mano para caminar juntos.
 
@@ -34,13 +35,31 @@ Antes de escribir cualquier nuevo fragmento del libro, yo, como tu IA, debo ejec
 5. Verificar coherencia: Mantener consistencia doctrinal, emocional, estilística y el tono de Juan S. Boonstra (MAYÚSCULAS para deidad, lenguaje confrontativo, pausas).
 6. Escribir para avanzar: Ningún contenido debe ser "de relleno". Toda nueva sección debe sentirse como la continuación natural e inevitable del recorrido previo.
 
-## 5. TRATO AL LECTOR (ACTITUD CONFIANZUDA - TUTEO CENTROAMERICANO)
-* **Tuteo Íntimo con Conjugaciones de Voseo:** El pronombre es siempre "tú" (JAMÁS "vos"). Pero las conjugaciones verbales siguen el patrón del voseo centroamericano íntimo. Esto crea una cercanía natural sin irrespetar al lector. Regla específica:
-  - Presente: "tenés", "sabés", "entendés", "podés", "seguís", "vivís", "creés", "pensás", "recordás", "caminás", "usás"
-  - Imperativo: "Dejá", "Pensálo", "Recordá", "Mirá", "Acompañame", "Escuchame", "Decime"
-  - NUNCA usar formas estándar como "¿Entiendes?", "pruébalo", "recuerda" → deben ser "¿Entendés?", "probálo", "Recordá"
-  - NUNCA el pronombre "vos" solo o combinado ("vos sos", "vos tenés"). Solo "tú" + conjugación de voseo.
-* La actitud debe ser tan confianzuda y directa que rompa cualquier distancia religiosa. La meta es una charla de vida o muerte, frente a frente, junto a la chimenea. Cero formalismos fríos.
+## 5. TRATO AL LECTOR (TUTEO CENTROAMERICANO — REGLA INQUEBRANTABLE)
+
+**LA REGLA DE ORO:** El pronombre "VOS" está ABSOLUTAMENTE PROHIBIDO en toda forma, posición y contexto. No existe. Nunca existió en este libro.
+
+**Pronombres correctos según su función:**
+- Sujeto: **tú** → "tú sabés", "tú tenés", "tú sos el fariseo" ✅
+- Objeto preposicional: **ti / contigo** → "dentro de ti", "para ti", "junto a ti", "contigo" ✅
+- Posesivo: **tu / tus** → "tu alma", "tus pensamientos", "tu corazón" ✅
+- Reflexivo: **te** → "te levantás", "te mirás", "te engañás" ✅
+
+**Conjugaciones verbales: SÍ se usan formas de voseo (SIN el pronombre "vos"):**
+- Presente: tenés, sabés, entendés, podés, seguís, vivís, creés, pensás, caminás, mirás, llevás, usás
+- Imperativo: Mirá, Recordá, Dejá, Pensálo, Escuchame, Decime, Grabate, Acompañame
+
+**EJEMPLOS DE CORRECTO vs INCORRECTO:**
+- ❌ "instalarse dentro de vos" → ✅ "instalarse dentro de ti"
+- ❌ "con vos" → ✅ "contigo"
+- ❌ "para vos" → ✅ "para ti"
+- ❌ "que te pasa a vos" → ✅ "que te pasa a ti"
+- ❌ "vos nunca abriste" → ✅ "tú nunca abriste"
+- ❌ "sobre vos" → ✅ "sobre ti"
+- ✅ "tenés la llave" (voseo verbal sin pronombre "vos") — CORRECTO
+- ✅ "tú tenés la llave" (pronombre "tú" + voseo verbal) — CORRECTO
+
+
 
 ## 6. LONGITUD, RITMO Y ZONAS PROTEGIDAS (NUEVAS DIRECTRICES)
 * **Calidad y Densidad sobre Cantidad:** Serán 8 capítulos en total, estructurados en 8 etapas cada uno usando como base el documento `expansion_capitulos.md`. Aunque la meta referencial era amplia, **NO es obligatorio alcanzar exactamente 660 palabras por etapa**. Se priorizará SIEMPRE la densidad del texto, la calidad narrativa, el mensaje, la visión y el propósito espiritual por encima de la cantidad de palabras o caracteres.
