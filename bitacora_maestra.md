@@ -15,8 +15,14 @@ El texto debe transpirar esa intimidad, ese amor y esa comodidad, pero acompaña
 
 **Atributos del Tono:**
 * **Tensión Espiritual y Cercanía:** El tono es dramatúrgico, retórico y metafórico. Es el sonido del trueno, pero pronunciado con el brazo sobre el hombro del lector.
-* **Frases de Intimidad y Sacudida:** Uso constante de llamados de atención cercanos y confianzudos: "Escúchame bien amigo", "Querido amigo", "Mirá bien lo que te voy a decir", "Reaccioná", "¿Estás conmigo?", "¡Démosle pues!".
-* **Humor Coloquial Centroamericano (Uso Orgánico y Oportuno):** El autor mezcla estratégicamente la solemnidad de Boonstra con destellos de humor centroamericano crudo, auténtico y desarmante. Son frases que rompen la guardia del lector en el momento exacto en que más necesita escuchar la verdad. Ejemplos del ESTILO (no copiar literalmente, sino generar frases equivalentes cuando el momento lo pida orgánicamente): "calentando la banca de la iglesia con las nalgas", "ni la mamá de Tarzán hubiera creído eso", "tan grande es tu orgullo que hasta un oso se fuera de hocico si te viera". Estas frases NUNCA son vulgares, NUNCA usan "vos", y NUNCA se fuerzan — solo aparecen cuando el texto las pide naturalmente para bajar las defensas del lector y pegarle con la verdad desde la carcajada.
+* **Frases de Intimidad y Sacudida:** Uso constante de llamados de atención cercanos y confianzudos: "Escuchame bien amigo", "Querido amigo", "Mirá bien lo que te voy a decir", "Reaccioná", "¿Estás conmigo?", "¡Démosle pues!".
+* **SABIDURÍA CALLEJERA PROFÉTICA (Ley Narrativa Estricta):** La narrativa incorpora ocasionalmente una capa de sabiduría callejera profética: mezcla de solemnidad espiritual con frases criollas, campesinas, sarcásticas, humanas, extrañas, memorables y emocionalmente oportunas. Como si un predicador viejo, sabio, callejero y profundamente espiritual hablara cara a cara junto a una fogata. REGLAS DE USO:
+  - NUNCA se fuerzan ni se usan como chiste barato. Aparecen SOLO cuando el momento emocional lo permite.
+  - Funcionan como martillazo retórico: rematan una idea espiritual con una imagen popular absurdamente humana y memorable.
+  - Pueden ser: dichos reales latinoamericanos, deformaciones callejeras, sarcasmos criollos, expresiones inventadas pero coherentes, comparaciones exageradas, refranes campesinos o imágenes populares inesperadas.
+  - NUNCA usan "vos" como pronombre. NUNCA son vulgares. NUNCA rompen el flujo espiritual del texto.
+  - Ejemplos del ESTILO (generar equivalentes creativos, no copiar literalmente): "solo calentás la banca con las nalgas", "ni la mamá de Tarzán se atrevaría a eso", "esa es la mera mata donde se rasca el tigre", "una raya más pal tigre", "ni tu nana ni tu tata te entienden", "mi tata era cosa seria y muy arrecho".
+  - Meta: crear una "huella digital narrativa" única donde profundidad doctrinal convive con humanidad callejera. El resultado: cercanía emocional, sonrisa incómoda, reflexión y memoria duradera.
 * Pausas estratégicas prolongadas con carga reflexiva, énfasis prosódico en palabras clave, y proyección serena pero con altísima autoridad espiritual.
 * Cierre exhortativo fuerte, confrontativo pero profundamente pastoral, llevando siempre al lector hacia el espejo brutal de la verdad mientras se le extiende la mano para caminar juntos.
 
@@ -62,8 +68,10 @@ Antes de escribir cualquier nuevo fragmento del libro, yo, como tu IA, debo ejec
 
 
 ## 6. LONGITUD, RITMO Y ZONAS PROTEGIDAS (NUEVAS DIRECTRICES)
-* **Calidad y Densidad sobre Cantidad:** Serán 8 capítulos en total, estructurados en 8 etapas cada uno usando como base el documento `expansion_capitulos.md`. Aunque la meta referencial era amplia, **NO es obligatorio alcanzar exactamente 660 palabras por etapa**. Se priorizará SIEMPRE la densidad del texto, la calidad narrativa, el mensaje, la visión y el propósito espiritual por encima de la cantidad de palabras o caracteres.
-* **Progresión paciente (No adelantar el arco):** Está ESTRICTAMENTE PROHIBIDO saltar etapas. Cada etapa debe enfocarse profundamente en su objetivo psicológico y emocional sin apresurarse. 
+* **Extensión por Etapa (REGLA ACTIVA):** Cada etapa debe tener entre **400 y 475 palabras**. Ni más, ni menos. Este rango obliga a escribir con precisión y alta densidad: cada frase debe ganarse su lugar. Sin relleno, sin repetición, sin rodeos innecesarios. La densidad y el impacto deben estar concentrados dentro de ese margen.
+* **Calidad y Densidad sobre Cantidad:** La prioridad absoluta es la densidad del texto, la calidad narrativa, el mensaje, la visión y el propósito espiritual. Nunca escribir para "completar" palabras —escribir para impactar.
+* **Progresión paciente (No adelantar el arco):** Está ESTRICTAMENTE PROHIBIDO saltar etapas. Cada etapa debe enfocarse profundamente en su objetivo psicológico y emocional sin apresurarse.
+ 
 
 ## 7. ZONAS PROTEGIDAS Y ESTADO DE LOS TEXTOS (REGLA INQUEBRANTABLE)
 * **Textos Finalizados (JAMÁS TOCAR NI MODIFICAR):** Las siguientes secciones ya están completas y aprobadas por el autor:
