@@ -1,7 +1,7 @@
 # FARISEOS DISFRAZADOS
 *por Mauricito Barrientos Jr.*
 
----
+------
 
 ## INTRODUCCIÓN — Fariseos Disfrazados y Cristianos Actores
 
@@ -229,7 +229,7 @@ Dios ya no te puede amar más, porque cuando te amó, ... te amó a tope, lo dio
 
 Así que DIOS te amó fuerte e intencionalmente a ti, mi amigo, te amó de tal manera que entregó esa llave única, por amor, y te la dio a ti para abrir cada momento la puerta de tu corazón al OMNIPOTENTE, VIVO Y REAL ESPÍRITU SANTO. 
 
-Y el nuevo nacimiento no termina en un altar; ¡de hecho allí comienza!… pero debe continuar en una despierta vida rendida, muy consciente, transformada y guiada por ÉL. 
+Y el nuevo nacimiento no termina en un altar; ¡de hecho allí comienza!… pero debe continuar en una despertá vida rendida, muy consciente, transformada y guiada por ÉL. 
 
 Pero nadie te advirtió que la salvación no es un evento de un instante que te da un pase libre y de gratis al cielo mientras tú seguís viviendo como te da tu reverendísima gana en la tierra. Nadie te dijo que recibir a CRISTO era firmar tu propia sentencia de muerte: la muerte de tu yo, la muerte de tus deseos, la muerte de tu disfraz de fariseo.
 
@@ -318,7 +318,7 @@ FUISTE CREADO CON UN PROPÓSITO Y TE LO ESTÁS PERDIENDO, y para lo que te la di
 
 Hay una parte en la Biblia donde aparece un contraste poderoso entre un hijo de Dios —Eliseo— y un hombre natural e incrédulo: su sirviente, Giezi. Eliseo veía las cosas espirituales; Giezi, aunque caminaba a su lado, no podía creerlas.
 
-La historia está en 2 Reyes 6:17. El siervo de Eliseo despierta y ve que un ejército enemigo los tiene completamente rodeados. Entra en pánico al ver que solo son ellos dos contra todo un ejército.
+La historia está en 2 Reyes 6:17. El siervo de Eliseo despertá y ve que un ejército enemigo los tiene completamente rodeados. Entra en pánico al ver que solo son ellos dos contra todo un ejército.
 
 Pero entonces Eliseo pronuncia una frase corta, letal y poderosa:
 
@@ -352,7 +352,7 @@ Tal vez la única oración que falta es la misma que hizo Eliseo: Para que abras
 
 Querido amigo… hay algo que quiero que entiendas antes de que sigas leyendo. El invierno espiritual no te avisa. No llega con sirena, ni llega con pitos y tambores avisando, no golpea tu puerta con el puño, no anuncia su nombre en voz alta. 
 
-No. El invierno espiritual es el más cobarde de todos los invasores, porque entra en silencio absoluto. Se cuela por las rendijas, despacito, como el frío que atraviesa la ventana mal cerrada a las tres de la mañana mientras tú duermes tan tranquilo. Y para cuando lo venís a sentir, ya lleva meses dentro de ti.
+No. El invierno espiritual es el más cobarde de todos los invasores, porque entra en silencio absoluto. Se cuela por las rendijas, despacito, como el frío que atraviesa la ventana mal cerrada a las tres de la mañana mientras tú dormís tan tranquilo. Y para cuando lo venís a sentir, ya lleva meses dentro de ti.
 
 Así de traicionero es. Así de silencioso. Así de letal.
 
@@ -362,7 +362,7 @@ Simplemente… se fue enfriando. Gradualmente. Silenciosamente. Fatalmente.
 
 Pero tú seguiste cantando los mismos himnos. Seguiste levantando la misma mano. Seguiste respondiendo "¡Gloria a DIOS!" con la misma entonación aprendida. Y aquí está lo más aterrador de todo esto, amigo: ni siquiera te diste cuenta del momento exacto en que tu adoración dejó de ser real y se convirtió en costumbre. 
 
-Eso es lo que hace el frío espiritual. No apaga el fuego de golpe. Lo reduce, lo reduce, lo reduce... hasta que lo que ves en el hogar ya no es llama sino rescoldos tibios cubiertos de ceniza. Y tú sigues soplando sobre esa ceniza creyendo que con eso es suficiente.
+Eso es lo que hace el frío espiritual. No apaga el fuego de golpe. Lo reduce, lo reduce, lo reduce... hasta que lo que ves en el hogar ya no es llama sino rescoldos tibios cubiertos de ceniza. Y tú seguís soplando sobre esa ceniza creyendo que con eso es suficiente.
 
 Mirá bien esto, porque aquí está la mentira más peligrosa en la que hayas caído: te convenciste de que estabas bien porque no habías pecado escandalosamente. 
 
@@ -384,7 +384,7 @@ Pero yo te digo la verdad esta noche, sentados aquí juntos, con toda la confian
 
 El peligro mortal del invierno espiritual no es que se vea oscuro y aterrador. El peligro mortal es que se siente… cómodo. Tibio. Administrable. Tolerable. Y se vuelve un hábito.
 
-Y mientras tú administras tu tibieza con mucha dignidad religiosa, el ESPÍRITU SANTO sigue llamando desde el otro lado de la puerta. Golpeando desesperado con amor. Esperando. 
+Y mientras tú administrás tu tibieza con mucha dignidad religiosa, el ESPÍRITU SANTO sigue llamando desde el otro lado de la puerta. Golpeando desesperado con amor. Esperando. 
 
 No con enojo, sino con la paciencia terrible de quien sabe que el tiempo se acaba y que tú, querido amigo, llevas demasiado tiempo congelado creyendo que estás en primavera.
 
@@ -479,7 +479,7 @@ Suenan las alabanzas; acaban de comenzar.
 
 Y aquí —aquí es donde el fariseo disfrazado hace la entrada de acróbata, sin exagerar ni un milímetro, en el artista más completo de todo el edificio.
 
-El primer acorde despierta algo en ti. No algo espiritual —eso murió hace tiempo—. Lo que despierta es el instinto del actor. El reflejo del entrenamiento. El archivo mental de todos los domingos anteriores, indicándote con precisión quirúrgica lo que toca hacer en este momento. Y el cuerpo obedece sin consultar al corazón. Sin pedir permiso al alma.
+El primer acorde despertá algo en ti. No algo espiritual —eso murió hace tiempo—. Lo que despertá es el instinto del actor. El reflejo del entrenamiento. El archivo mental de todos los domingos anteriores, indicándote con precisión quirúrgica lo que toca hacer en este momento. Y el cuerpo obedece sin consultar al corazón. Sin pedir permiso al alma.
 
 Sabés exactamente cuándo levantar las manos, cerrar los ojitos y agachar la cabeza con reverencia entrenada. No lo pensás: lo ejecutás. Sabés en qué parte de la canción cerrar los ojos con esa expresión de profundidad espiritual que has perfeccionado tanto que ya la aplicás sin esfuerzo consciente. 
 
@@ -544,7 +544,7 @@ No, si la Biblia la parafraseas bien cabalito.
 
 Tenés una habilidad asombrosa para recibir la Palabra de DIOS y redirigirla y torearla inmediatamente hacia cualquier dirección... excepto hacia ti.
 
-Así que sos un experto coleccionista de enseñanzas. Un archivador meticuloso de verdades bíblicas. Pero un analfabeto completo en la única disciplina que de verdad importa: la obediencia. Solo calentás la silla con las nalgas mientras la Palabra de DIOS busca dónde aterrizar en ti y no encuentra ni una rendija abierta. 
+Así que sos un experto coleccionista de enseñanzas. Un archivador meticuloso de verdades Bíblicas. Pero un analfabeto completo en la única disciplina que de verdad importa: la obediencia. Solo calentás la silla con las nalgas mientras la Palabra de DIOS busca dónde aterrizar en ti y no encuentra ni una rendija abierta. 
 
 Tu conocimiento teológico engorda domingo a domingo, produciendo orgullo. Tu espíritu se muere de hambre. Mientras tu pantorrilla no deja de moverse en todo el culto.
 
@@ -603,7 +603,7 @@ JESÚS no fue ejecutado por los borrachos ni por las prostitutas de Galilea. Fue
 
 —"¡Ay de vosotros, escribas y fariseos, hipócritas! Porque sois semejantes a sepulcros blanqueados, que por fuera, a la verdad, se muestran hermosos, pero por dentro están llenos de huesos de muertos y de toda inmundicia." (Mateo 23:27)
 
-Detente un momento ahí, amigo querido. Porque esa no es una condena arqueológica para gente que murió hace dos mil años. Esa frase fue escrita para ti. 
+detenete un momento ahí, amigo querido. Porque esa no es una condena arqueológica para gente que murió hace dos mil años. Esa frase fue escrita para ti. 
 
 Para el que cada domingo pule el mármol exterior de su reputación cristiana con mucho esmero, asegurándose de que nadie sospeche jamás lo que hay detrás del escaparate. Has invertido la mayor parte de tu vida cristiana en la jardinería de tu propia tumba. El diezmo puntual, la asistencia impecable, el vocabulario espiritual bien afinado, la postura correcta durante la adoración... Todo eso es pintura blanca sobre las paredes de un sepulcro. 
 
@@ -631,7 +631,7 @@ Esa fractura que cargás, esa doble vida esquizofrénica entre el cristiano del 
 
 Y esa diferencia, amigo querido, es exactamente la diferencia entre actuar para los hombres y vivir delante de DIOS.
 
-En lo más profundo de tu conciencia, sabés perfectamente que hay un abismo entre tú y DIOS. Lo sabés. Esa voz del ESPÍRITU SANTO que te despierta en la madrugada y te confronta en el silencio no es un invento tuyo. Es real. Y duele.
+En lo más profundo de tu conciencia, sabés perfectamente que hay un abismo entre tú y DIOS. Lo sabés. Esa voz del ESPÍRITU SANTO que te despertá en la madrugada y te confronta en el silencio no es un invento tuyo. Es real. Y duele.
 
 Pero en lugar de arrodillarte delante de esa verdad, decidiste algo mucho más conveniente: sobornar al cielo con tus buenas obras.
 
@@ -742,7 +742,7 @@ Es como cuando mi madre Nelly, después de darme una nalgueada por mis travesura
 
 Así de dulce, así de inmensamente tierno es tu PADRE CELESTIAL contigo en este precioso momento. ÉL no te ha desnudado el alma para avergonzarte frente al mundo, sino para librarte de una vez por todas de ese disfraz tan pesado de fariseo que ya te estaba robando la vida.
 
-En Mateo 6:11-12, JESÚS mismo nos recuerda cómo debemos orar; y eso que antes, desde el versículo uno, nos recuerda el mismo JESÚS que no lo hagamos en automático para que nos vean los demás hermanitos. Así que Él recomienda cómo hacerlo, y eso sí: ¡recordemos que primero menciona, en el versículo 11, y cito:
+En Mateo 6:11-12, JESÚS mismo nos recordá cómo debemos orar; y eso que antes, desde el versículo uno, nos recordá el mismo JESÚS que no lo hagamos en automático para que nos vean los demás hermanitos. Así que Él recomienda cómo hacerlo, y eso sí: ¡recordemos que primero menciona, en el versículo 11, y cito:
 
 *"Danos hoy el pan nuestro de cada día"*,
 
@@ -784,17 +784,33 @@ Así que JESÚS dice que el reino de los cielos es parecido a esta historia que 
 
 De hecho, DIOS trata con cada persona de forma diferente, y la GRACIA no depende de cuánto tiempo tenés de ser "CRISTIANO". Dios le da su FAVOR a quien le escucha y abre la puerta, y JESÚS ENTRA A ÉL; y, cuando ya está dentro, el trato es diferente con cada uno.
 
-¡IMPORTANTE!:
+###
+IMPORTANTE!!!:
 
-Una cosa es aceptar a JESÚS EN TU CORAZÓN; dicho de otra forma: Una cosa es aceptar la llave y recibirla y mostrarla, y otra cosa es usar la llave para abrir el cofre del tesoro.
-
+Una cosa es aceptar a JESÚS EN TU CORAZÓN; dicho de otra forma:
+Una cosa es aceptar la llave y recibirla y mostrarla, y otra cosa es usar la llave para abrir el cofre del tesoro.
 Te lo vuelvo a decir de una tercera forma:
-Una cosa es escuchar su voz y abrir la puerta —¡vaya! que también Él entre a ti—, y otra cosa es cenar con Él, platicar con Él, sincerarse con Él y decirle:
+Una cosa es escuchar su voz y abrir la puerta - vaya! que también Él entre a ti-, y otra cosa es cenar con Él,
+platicar con Él, sincerarse con Él y decirle:
+"Ordena mi casa, ordena mi vida, y toma Tú el control de aquí en adelante, ¡DIOS PRECIOSO!"
+JESUS YO TE ABRI MI CORAZON UN DIA...
+Y ENTRASTES Y YO TE SENTE YO MISMO EN LA SALA EN UN SOFA VIEJO
+Y TE DEJE OLVIDADO ALLI EN ESE SILLON CON LLENO DE POLVO...
+¡ESO SE TERMINA HOY!
+JESUS YA NO QUIERO ESA VIDA SIN TI, YO QUIERO CAMBIAR, EN SERIO QUIERO SER DIFERNTE PARA TI...
+YO ENTIENDO QUE ERES EL ESPIRITU DE DIOS EN MI, EL QUE NOS DEJASTES CUANDO TE FUISTES DE REGRESO...
+ESPIRITU DE DIOS PASA MAS ADENTRO SENTATE EN LA MESA A CENAR CONMIGO Y ARREGLA MI VIDA, TOMA EL CONTROL,
+ARREGLA Y ORRIJE ETAPA POR ETAPA DE MI VIDA...
+Y TE PREGUNTO:
+¿ QUE QUERES QUE HAGA ESPIRITU SANTO: ¡papito lindo! ?
 
-—"Ordena mi casa, ordena mi vida, y toma Tú el control de aquí en adelante, ¡papito lindo!"
-
-JESÚS TE ABRÍ Y ENTRASTE Y TE SENTÉ YO MISMO EN LA SALA Y TE DEJÉ OLVIDADO ALLÍ EN ESE SOFÁ VIEJO...
-JESÚS PASÁ MÁS ADENTRO, SENTATE EN LA MESA A CENAR CONMIGO Y ARREGLÁ MI VIDA, TOMÁ EL CONTROL, ¿QUÉ QUERÉS QUE HAGA ESPÍRITU SANTO: ¡papito lindo!?
+Aveces la gente inventa fraces cristianas, y las escuchamos y lasaprendemos a repetir en el escenario de la iglesia,
+algunas fraces que la gente dice y repite dentro del templo los domingo son parecidas a esta:
+"DIOS LE BENDIGA",
+"BENDICIONES HERMANOS",
+"BENDITO SEA DIOS",
+"DIOS TODO PODER05O"
+"DIOS ESTA QUI"
 
 No se te olvide que hay una esperanza maravillosa brillando para ti. No importa qué tan seco o congelado sintás tu corazón hoy; si tú vas por la firme decisión de girar esa llave en la cerradura de tu voluntad, todo, absolutamente todo, de aquí en adelante, puede cambiar en un segundo. 
 
@@ -827,7 +843,7 @@ Y traigo esto a colación porque así es JESÚS, Él ya sabe lo que haces, Él t
 
 Preguntate en este instante, y hazlo de una manera obscenamente sincera: ¿Por qué te aterra tanto abrir ese cofre que tiene vida para ti? ¿Por qué prefieres quedarte como un mendigo congelado afuera de la VERDADERA PRESENCIA DE DIOS, presumiendo colgada al pecho la llave del Evangelio, en lugar de insertar esa llave en la cerradura y entrar? 
 
-¿Por qué valoras infinitamente más tu cuidada imagen pública, el miedo al "qué dirán" y la aprobación de los hombres de tu congregación y tu rol, si en lo más profundo de tu conciencia tú sabes perfectamente que la aprobación de Dios y su AMOR y el fuego de su presencia valen eternamente más?
+¿Por qué valoras infinitamente más tu cuidada imagen pública, el miedo al "qué dirán" y la aprobación de los hombres de tu congregación y tu rol, si en lo más profundo de tu conciencia tú sabés perfectamente que la aprobación de Dios y su AMOR y el fuego de su presencia valen eternamente más?
 
 Yo te lo diré así: Porque sabes que abrir esa puerta implica rendición absoluta. Implica que debes soltar el timón y perder el control que tanto y tan fieramente proteges. 
 
@@ -870,13 +886,13 @@ Al llegar tú al cielo, en medio del silencio absoluto de los milenios, Él, maj
 
 ¿Lograste entender algo del Evangelio? ¿No te ha samaquiado este libro?
 
-Si en este momento decisivo vuelves a endurecer el cuello y eliges guardar cobardemente esa llave nuevamente en tu bolsillo, para regresar al pantano tibio de tu rutina de apariencias... entonces, prepárate. Porque el helado y oscuro invierno de tu alma está a punto de volverse eterno y no habrá forma en el infierno que pueda sacarte de allí.
+Si en este momento decisivo vuelves a endurecer el cuello y eliges guardar cobardemente esa llave nuevamente en tu bolsillo, para regresar al pantano tibio de tu rutina de apariencias... entonces, preparate. Porque el helado y oscuro invierno de tu alma está a punto de volverse eterno y no habrá forma en el infierno que pueda sacarte de allí.
 
 ¡Ojo con eso mi estimado, mi compadre! ¡Buzo caperuzo!
 
 ¡Mirá!: ya caminaste bastante y creo que es tiempo de despertar de este letargo envenenado. ¡Es tiempo de rasgar de arriba abajo ese miserable disfraz de fariseo, arráncatelo y tíralo a la basura! No te atrevas a pasar un solo domingo más en tu vida calentando una silla en la iglesia, creyendo tontamente que eso te hace cercano a Dios. 
 
-¡Atrévete a insertar de una vez por todas la llave! Escucha esa voz urgente que te está llamando con desesperación ahora mismo. Atrévete, aunque llores y tiembles, a girar la llave en el picaporte. Atrévete a abrir la puerta de tu voluntad y, con lágrimas rodando, caer de rodillas y decirle sincera, reflexiva y despacio al ESPÍRITU SANTO: 
+¡Atrevete a insertar de una vez por todas la llave! Escucha esa voz urgente que te está llamando con desesperación ahora mismo. atrevete, aunque llores y tiembles, a girar la llave en el picaporte. atrevete a abrir la puerta de tu voluntad y, con lágrimas rodando, caer de rodillas y decirle sincera, reflexiva y despacio al ESPÍRITU SANTO: 
 
 —"¡Entra!... ¡Entra ya y quémalo todo! Destruye todo lo que está podrido en mí, destruye para siempre a este actor falso, y haz nacer por gracia la simiente Santa de Dios en mi corazón. Crea en mí, oh Dios, un corazón limpio, y renueva un espíritu recto dentro de mí". (Salmos 51:10)
 
@@ -936,7 +952,7 @@ Mi respuesta fue directa y le dije:
 
 ¡Prestá mucha atención Luis Mario le dije!, porque la historia que le conté a él, hoy te la entrego a ti con el mismo amor.
 
-Así que le dije: imagina que te encuentras sentado a solas en tu habitación. Le pedí a mi amigo que hiciera un ejercicio mental, y le dije: 
+Así que le dije: imaginá que te encuentras sentado a solas en tu habitación. Le pedí a mi amigo que hiciera un ejercicio mental, y le dije: 
 
 —"Cerrá tus ojos y pídele a tu esposa que entre al cuarto en absoluto silencio descalza sin zapatos ni calcetines. Decile: 'Entra sin hacer el más mínimo ruido, descalza, intenta que yo no me dé cuenta de tu llegada'. Tú colocate en lo oscuro y ella que entre de la claridad del cuarto tapándote la luz, y si ella obedece y, con pasos sigilosos, calladita [no abras los ojos le dije a mi amigo], y tu esposa entrando calladita se logra colocar exactamente frente a ti —tan cerca que puedas percibirla, pero sin llegar a tocarte—, ¿qué crees que sucedería?"
 
@@ -965,7 +981,7 @@ Cuando escudriñas la profundidad de esa palabra griega, *Paráclito*, descubres
 Si unimos esta verdad con la solemne declaración de Jesús —*"He aquí, yo estoy a la puerta y llamo"*—, amarramos el mundo material con el espiritual de manera innegable. Él está frente a la puerta de tu voluntad, llamando. Y la promesa es clara y real: si tú decides abrir, el *Paráclito* entrará a ti, cruzará el umbral de tu vida para consolarte, para guiarte, para quedarse permanentemente a la par tuya.
 
 Con este escenario en mente, le indiqué a Luis Mario: 
-—"Paráte aquí, así como se paró tu esposa, e imagina la escena. Cerrá los ojos". 
+—"Paráte aquí, así como se paró tu esposa, e imaginá la escena. Cerrá los ojos". 
 
 Las Escrituras no dicen en ningún versículo que cerremos los ojos para orar, pero lo hacemos por reverencia y para bloquear las distracciones de un mundo ruidoso. Le dije: 
 —"Si tú invitas al Consolador a entrar, tenés la garantía divina de que Él estará allí, a la par tuya. Pero debes arrancar de tu ser ese disfraz de fariseo, esa religiosidad gélida que murmura y dice: 'yo no siento nada'." 
@@ -980,7 +996,7 @@ Y cuando comencés a percibir su cercanía —o incluso si las primeras veces la
 
 Nota la inmensa diferencia: no es simplemente "creer" que Él podría estar; es *saber* que Él está. 
 
-Esa es la fe bíblica que te he descrito antes, la convicción inquebrantable de lo que no se ve, la certeza de lo que se espera. Armado con esa fe, declarale: 
+Esa es la fe Bíblica que te he descrito antes, la convicción inquebrantable de lo que no se ve, la certeza de lo que se espera. Armado con esa fe, declarale: 
 —"Espíritu Santo, sé que aquí estás y yo te siento. Con la reverencia que mereces, entra a mi vida, pues deseo platicar contigo todos los días". 
 
 Empieza apartando un minuto, o quizá solo unos segundos al día. Construye este escenario íntimo que, para las mentes lógicas parecerá locura, pero que para ti será redención. Dirigite a Él —no a Dios Padre, no a Jesús, sino al Espíritu Santo en persona— diciéndole: "A ti me dirijo". 
@@ -1036,7 +1052,7 @@ entonces:
 Es bajo la sombra de esa abrumadora limitación física que las palabras del Maestro cobran un poder volcánico: 
 —«Les conviene que yo me vaya». 
 
-¡Despierta a esta realidad! Al enviar al Espíritu Santo, nos fue concedida la persona divina que es Omnisciente, Omnipotente y Omnipresente. Esto significa que en este preciso instante, Él está en todo lugar. Mientras escucha el clamor de un chinito en el lejano oriente, también sostiene conversación con un argentino, a un judío y abraza a un salvadoreño con su ternura espiritual. 
+¡Despertá a esta realidad! Al enviar al Espíritu Santo, nos fue concedida la persona divina que es Omnisciente, Omnipotente y Omnipresente. Esto significa que en este preciso instante, Él está en todo lugar. Mientras escucha el clamor de un chinito en el lejano oriente, también sostiene conversación con un argentino, a un judío y abraza a un salvadoreño con su ternura espiritual. 
 
 ¿Entiendes ahora por qué JESÚS (la llave) dijo que su partida era conveniente? ¿Y que nos convenía que se fuera? Porque el Espíritu Santo nos puede atender a todos al mismo tiempo... ¡uno a uno! 
 
