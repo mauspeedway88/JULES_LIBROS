@@ -376,9 +376,109 @@ Ya vas a ver te voy a mostrar mas adelante como respetar a tu Rey, a tu Dios.
 
 
 ######
-CAPITULO 4:
+CAPITULO 4: 
+"El dia que la prescencia se fue"
 
 
+Nicodemo era el personaje y prototipo exacto del fariseo exitoso. Era el mero mero, el gran maestro, el teólogo intachable que daba cátedra en Israel, era el tigre viejo pues !. Pero cuando se sentó frente a JESÚS en el silencio de la noche clladitos, el MAESTRO le desarmó toda su seguridad de cartón con una sola frase que le cayó como balde de agua helada: "De cierto, de cierto te digo, que el que no naciere de nuevo, no puede ver el reino de DIOS". Juan 3:3
+
+La mentira más gorda que te has tragado en tu vida cristiana es creer que podías simplemente "añadir" a JESÚS a tu vieja existencia. Te creíste que el evangelio era un barniz espiritual para lucir más presentable los domingos. Pensaste que podías agarrar al REY de Gloria como si fuera un parche nuevo para remendar tus mañas secretas tus trucos chuecos. ¡Le quisiste dar atol con el dedo al CREADOR! Pero dejame sacudirte de una vez: el evangelio no consiste en mejorar tu conducta, ni en enseñarle trucos religiosos a tu viejo hombre.
+
+El evangelio exige un funeral absoluto en el interior.
+
+Para que exista la gloriosa realidad de un nuevo nacimiento, primero tiene que haber un ataúd interno. Y ahí adentrito tiene que estar tu orgullo muerto. Tiene que morir ese fariseo calculador que llevás dentro, tiene que secarse tu necesidad de aprobaciones humanas, y tiene que quebrarse tu falsa piedad. No podés nacer del ESPÍRITU SANTO mientras sigás aferrado desesperadamente al cadáver de tu propio ego.
+
+En Juan 12:24 dice: y cito: "De cierto, de cierto os digo, que si el grano de trigo no cae en la tierra y muere, queda solo; pero si muere, lleva mucho fruto."
+Es decir, toda semilla para que nazca una planta, debe morir, es una ley, y cuando muera y nazca, 
+¡ AHHHHH ! ALKASELSER !!!!
+hasta entonces llevará mucho fruto.
+
+No te hagás el de los panes. Sabés exactamente de lo que te hablo. La cruz no es un collarcito de oro para andar faroleando frente a los hermanos en el culto, no estoyhablando de escapularios, ni un amuleto para guindar en el carro. La cruz es un instrumento despiadado de ejecución, y hoy, precisamente hoy, está reclamando tu vieja vida.
+Desiciontuya: o reconoces que necesitas nacer de nuevo, o te quedás vivo en la tierra y muerto espiritual abrazando tu religión bien entrenada.
+
+---
+
+Vaya mira: visualizá la escena más contrastante del universo: EL verdadero REY de reyes preguntando por entrar en la puerta y corazon de un simple mortal. [ACORDATE!] "He aquí, YO estoy a la puerta y llamo". Escuchame bien, esto talvez fue escrito para el borracho dormido tirado en la calle; posiblemnte tambien fue escrito para maduro, quien quita que tambien para Michael Jackson que ganaba dinero caminando para atras como dice Odircito, Yomas bien creo que esta palbras "Estoy a la puerta y llamo" fue escrito para ti, justo en este momento son para ti, que calentás la silla cada domingo, bien peinadito, pero con el corazón más blindado que el carro del presidente Ronal Rigan.
+
+Aquí no hay quite, tata. La cerradura de tu corazón tiene una realidad técnica aplastante: ¡no tiene manija del lado de afuera! Fue diseñada por el CREADOR para que, VOLUNTARIAMENTE, oíme bien, VOLUNTARIAMENTE, solo pueda abrirse desde adentro. Y yo le llamo a eso el libre advedrio. Y esto te quita hasta la última excusa barata. El PADRE ya entregó a SU HIJO; JESUCRISTO entregó SU sangre en el madero, y el ESPÍRITU SANTO lleva años aguantando tus desplantes. Y has sido más grosero que el desprecio de una madre. ¡El cielo ya hizo el trabajo pesado, duro e imposible! Esa llave de salvación que andás guindando en el pecho, exhibiendo como medalla, tiene que girarse desde tu lado. Y nadie, escuchalo bien, absolutamente nadie la va a girar por ti.
+
+La única y patética razón por la que le seguís sacando la vuelta a DIOS es porque tenes miedo, sos miedoso, no te estoy haciedno bulling , pero si sos miedoso. tenes que ser mas atrevido mira lo que dice aqui: 
+Mateo 11:12
+"El Reino de los cielos sufre violencia, y los violentos lo arrebatan" 
+Tu estas miedoso y estás aterrorizado de perder el control y que te descubran por dentro. Sabés perfectamente que si JESÚS entra a tu casa, va a patear mesas, va a volcar tu enraizado egoísmo y va a demoler esa reputación farisea que tanto cuidás. Sos muy aventado para levantar las manos en el culto, pero muy miedoso cuando toca rendir de verdad tu voluntad.
+-----------
+
+
+
+3. El Giro de la Llave
+Sé muy bien que todo lo que hemos conversado te ha movido, querido amigo. Sé que mis crudas palabras te han calado hondo, como cuando un doctor tiene que raspar una herida infectada para poder sanarla de verdad. Tal vez en este instante sentís que el pecho te aprieta, y que las lágrimas te quieren ganar la partida en el silencio de la lectura.
+
+ Pero escuchame bien, y grabátelo en el alma: esta incomodidad con este libro y mis parrafos oportunos que te sacude no es para tu destrucción. ¡Al contrario! Es la muestra más grande y hermosa de que el ESPÍRITU SANTO no te ha soltado. Es como cuando mi madre Nelly, después de darme una nalguiarmetodo por mis travesuras de cipote de 12 años, me sentaba a la par suya en la mesa de madera, me abrasaba, me limpiaba los ojos llorosos con su delantal oloroso a amor y cocina, y con toda suavidad mama Nelly me decia: «"mi chele divino veni come"». Así de dulce, así de inmensamente tierno es tu PADRE CELESTIAL contigo en este precioso momento. ÉL no te ha desnudado el alma para avergonzarte frente al mundo, sino para librarte de una vez por todas de ese disfraz tan pesado de fariseo que ya te estaba robando la vida.
+
+####
+En Mateo 6:11-12, JESÚS mismo nos recuerda cómo debemos orar; y eso que antes, desde el versículo uno, nos recuerda el mismo JESÚS que no lo hagamos en automático para que nos vean los demás hermanitos. Así que Él recomienda cómo hacerlo, y eso sí: ¡recordemos que primero menciona, en el versículo 11, y cito:
+
+“Danos hoy el pan nuestro de cada día”,
+
+y luego, en el 12, dice:
+
+“Y perdónanos nuestras deudas”.
+
+Eso nos empuja a entender que primero [EL MISMO DIJO] que nos sentemos a la mesa con ÉL; ya nos quedamos platicando de los pecados. Es decir, un PADRE siempre le va a dar de comer a su hijo, aunque se porte mal y, entre comillas, sea fariseo disfrazado.
+
+Finalmente, lo que te quiero decir es que hay esperanza en CRISTOJESÚS; siempre la hay, y la vamos a ver en el último y final capítulo.
+
+Solo que antes te quiero recordar algo muy importante que también está en la Biblia, y cabe mencionarlo aquí:
+
+¿Se acuerdan de la parábola cuando JESÚS multiplica los panes y los peces?
+
+Bueno, esa parábola NO es, sino que es otra parábola de la que les quiero hablar, y es la parábola que está en Mateo 20:1, y el mismo JESÚS la cuenta. Se la voy a parafrasear anuestra epoca y medio se las voy a contar.
+
+Así que dice algo así: que había un propietario de una finca, y salió al parque a buscar y contratar trabajadores tempranito para que trabajaran en su finca. Y logró contratar a los primeros a eso de las siete de la mañana, y acordó con ellos $20 dólares por el trabajo.
+
+Luego, más tarde, como a las 10 a. m., salió a buscar a otros, a un segundo grupo; luego, a las tres de la tarde, otro grupo; y, a las cinco de la tarde, otro grupo. Y ya como a las siete de la noche agarró a los últimos, diciéndoles que les pagaría lo justo, pero que terminaran el día de trabajo.
+
+Bueno, cuando llegó la noche, les pagó empezando con los últimos que había contratado; y les pagó a los que solo trabajaron una hora, les pagó $20 USD, dolaritos.
+
+Así que pensaron los primeros, y se dijeron entre ellos: “Si a estos que trabajaron solo una hora les dio $20, entonces a nosotros, que somos los primeros, ¡nos va a pagar mucho más!”
+
+¡Pero no! El propietario de la finca les pagó a todos lo mismo: ¡$20 dolaritos!
+
+¡Entonces aquí tronó la cosa!
+
+Le fueron a reclamar todos trompudos, y le dijeron:
+
+“Nosotros hemos trabajado todo el día bajo el sol, y estos que solo trabajaron una hora y de noche, ¿y les pagas lo mismo que a nosotros?”
+
+¡La cosa se puso color de hormiga, de esas bravas!
+
+Así que el propietario de la finca les respondió a los trompudos bravos, y le contestó al líder:
+
+“¿Acaso no acordé contigo $20 dólares? ¡Agarrá esos $20 que acordamos, hombre! Además, yo le quiero pagar lo mismo a todos, y lo mismo a los que solo trabajaron una hora. ¿O acaso tenés envidia porque soy bueno con ellos? Agarrá tus $20 lucas y andate de aquí”.
+
+Así que JESÚS dice que el reino de los cielos es parecido a esta historia que está en la Biblia. Y JESÚS quería decirles que ÉL TRATA COMO ÉL QUIERE CON CADA PERSONA, Y COMO LA PERSONA SE LO PERMITA. De hecho, DIOS trata con cada persona de forma diferente, y la GRACIA no depende de cuánto tiempo tenés de ser “CRISTIANO”. Dios le da su FAVOR a quien le escucha y abre la puerta, y JESÚS ENTRA A ÉL; y, cuando ya está dentro, el trato es diferente con cada uno.
+
+IMPORTANTE!!!:
+
+Una cosa es aceptar a JESÚS EN TU CORAZÓN; dicho de otra forma:
+Una cosa es aceptar la llave y recibirla y mostrarla, y otra cosa es usar la llave para abrir el cofre del tesoro.
+Te lo vuelvo a decir de una tercera forma:
+Una cosa es escuchar su voz y abrir la puerta — vaya! que también Él entre a ti—, y otra cosa es cenar con Él, platicar con Él, sincerarse con Él y decirle:
+“Ordena mi casa, ordena mi vida, y toma Tú el control de aquí en adelante, ¡papito lindo!”
+JESUS TE ABRI Y ENTRASTES Y TE SENTE YO MISMO EN LA SALA Y TE DEJE OLVIDADO ALLI EN ESE SOFA VIEJO...
+JESUS PASA MAS ADENTRO SENTATE EN LA MESA A CENAR CONMIGO Y ARREGLA MI VIDA, TOMA EL CONTROL, QUE QUERES QUE HAGA ESPIRITU SANTO: ¡papito lindo! ? 
+
+No se te olvide que hay una esperanza maravillosa brillando para ti. No importa qué tan seco o congelado sintás tu corazón hoy; si tú vas por la firme decisión de girar esa llave en la cerradura de tu voluntad, todo, absolutamente todo, de aquí en adelante, puede cambiar en un segundo. Girar esa llave es el acto más sencillo y, a la vez, más sublime: es dejar de pelear en tus propias fuerzas y dejarte abrazar por la inmensa GRACIA del SEÑOR. Es decirle al CREADOR, con total honestidad: «Padre, ya me cansé de actuar; toma tú el control». Y tené por seguro que, al abrir esa puerta, no vas a encontrar un juez enojado con un látigo esperándote. ¡No!, al contrario.
+
+Vas a encontrar el abrazo de un SALVADOR, con los brazos abiertos, listo para darte la bienvenida, sanar tus heridas y sentarse a cenar contigo, en una intimidad que jamás habías experimentado.
+
+
+En mi vida personal, yo he tropezado mucho, y me equivoque pesado, pero regrese a la mesa a platicar cada vez con EL MAESTRO en la intimidad. y me ha perdonado y levantado, todas las veces.
+En el próximo y último capítulo, te voy a contar un par de historias para que tengas un ejemplo de cómo hacerlo tu. 
+Yo lo descubrí de esa forma, y me ha funcionado desde 1989. Se lo he transmitido a mucha gente, claro, en persona, y les ha funcionado; y, para poder transmitirles este tesoro a miles, es que he hecho este libro sincero, para que tú y muchos que lo lean, les funcione también. Recordándote que JESÚS, cuando le abrís la puerta y EL entra, EL TRATO ES DIFERENTE CON CADA UNO...
+
+¿Estamos, campeón?
+Bueno, para terminar vamos al capítulo cinco, entonces.....
 
 
 ######
