@@ -19,23 +19,23 @@ Y mientras el cielo sigue llamando, y golpeando la puerta… el fariseo disfraza
 
 Querido amigo… quizá este libro llegue a tus manos en el momento más incómodo de tu vida. 
 
-Tal vez llevás años dentro del evangelio. Tal vez conocés versículos, himnos, doctrinas; tal vez sirves en algún puesto en la iglesia y conocés oraciones de memoria y frases cristianas que repites cada domingo al saludar a los hermanitos. Tal vez otros te admiran, te respetan y hasta creen que eres un ejemplo espiritual. 
+Tal vez llevás años dentro del evangelio. Tal vez conocés versículos, himnos, doctrinas; tal vez servís en algún puesto en la iglesia y conocés oraciones de memoria y frases cristianas que repetís cada domingo al saludar a los hermanitos. Tal vez otros te admiran, te respetan y hasta creen que sos un ejemplo espiritual. 
 
-Pero cuando cae la noche, cuando termina el culto, cuando ya no hay alabanzas ni prédicas y desaparece todo, y te quedas solo con tus pensamientos… algo dentro de ti sabe que hay una distancia terrible entre tu apariencia cristiana muy bien entrenada y tu verdadera condición delante de DIOS. 
+Pero cuando cae la noche, cuando termina el culto, cuando ya no hay alabanzas ni prédicas y desaparece todo, y te quedás solo con tus pensamientos… algo dentro de ti sabe que hay una distancia terrible entre tu apariencia cristiana muy bien entrenada y tu verdadera condición delante de DIOS. 
 
-Porque el actor religioso puede engañar a la congregación, incluso al pastor de allí… pero jamás podrá engañar la mirada penetrante de todo el cielo espiritual.
+Porque el actor religioso puede engañar a la congregación, incluso al pastor de ahí… pero jamás podrá engañar la mirada penetrante de todo el cielo espiritual.
 
 Tú conocés perfectamente el libreto de este acto en este escenario. Sabés cuándo levantar las manos, cuándo decir “Gloria a DIOS”, cuándo decir:
 
 —"¡DIOS LE BENDIGA HERMANO!"
 
-...cuándo quebrar la voz durante una oración y cómo vestir el personaje correcto para entrar al templo. Has aprendido muy bien cómo comportarte dentro de la iglesia, y en qué momento levantarte en medio de la prédica para ir al baño y distraerte un rato, y ya sabés qué cara poner en la iglesia para que piensen que estás poniendo atención, mientras pensás en el almuerzo o el trabajo. 
+...cuándo quebrar la voz durante una oración y cómo vestir el personaje correcto para entrar al templo. Has aprendido muy bien cómo comportarte dentro de la iglesia, y en qué momento levantarte en medio de la prédica para ir al baño y distraerte un rato. Ya sabés qué cara poner para que piensen que estás poniendo atención, mientras pensás en el almuerzo o el trabajo. 
 
-Pero escúchame bien amigo: el INFIERNO no tiembla delante de un cristiano entrenado para aparentar. 
+Pero escuchame bien amigo: el INFIERNO no tiembla delante de un cristiano entrenado para aparentar. 
 
 Y el cielo no se conmueve por lágrimas ensayadas ni por palabras religiosas memorizadas y repetidas durante años. Porque DIOS no está buscando actores espirituales perfectamente maquillados… DIOS está buscando desde siempre corazones rendidos, quebrantados y verdaderamente vivos delante de Su presencia.
 
-¡Escucha bien esto! 
+¡Escuchá bien esto! 
 
 No hay tragedia más grande que la de una iglesia atestada de gente, y un cielo completamente vacío de su clamor. 
 
@@ -61,8 +61,8 @@ Es posible cantar sobre la cruz mientras el ego sigue sentado en el trono. Y mie
 
 Te pregunto hoy, reaccioná por un momento delante de DIOS: 
 
-¿Eres verdaderamente un hijo rendido… o apenas un fariseo disfrazado detrás de lenguaje cristiano? 
-¿Eres un corazón transformado por la presencia viva del ESPÍRITU SANTO… o solamente un actor religioso que perfeccionó su personaje hasta el punto de engañar a todos, y peor aún, de engañarse también a sí mismo?
+¿Sos verdaderamente un hijo rendido… o apenas un fariseo disfrazado detrás de lenguaje cristiano? 
+¿Sos un corazón transformado por la presencia viva del ESPÍRITU SANTO… o solamente un actor religioso que perfeccionó su personaje hasta el punto de engañar a todos, y peor aún, de engañarse también a sí mismo?
 
 Cuando el telón finalmente caiga y se apague la última escena de tu vida, ya no habrá aplausos, ni personajes, ni discursos religiosos detrás de los cuales esconderte. Quedará solamente tu alma desnuda frente a la verdad eterna. 
 
@@ -101,496 +101,119 @@ No tiene agua. No tiene refugio. No tiene descanso. Lleva una carga enorme de pe
 
 Y aun así… ¡sigue caminando, buscando la ciudad de oro que le prometieron!
 
-Porque dentro de él todavía arde una esperanza débil, casi apagada, de encontrar un lugar donde finalmente pueda soltar su carga, descansar a salvo, lavar su rostro cansado con agüita fresca, sentarse en paz, frente a un banquete sabroso y vivir tranquilo.
+Porque dentro de él todavía arde una esperanza débil, casi apagada, de encontrar un lugar donde finalmente pueda soltar su carga, descansar a salvo, lavar su rostro cansado con agüita fresca, sentarse en paz frente a un banquete sabroso y vivir tranquilo.
 
-¡IMPORTANTE! 
+Cuando comenzó aquel peregrinaje, este caminante aceptó un regalo inmerecido: **una llave de oro puro.** 
 
-Cuando comenzó aquel peregrinaje, este caminante aceptó una llave de oro puro. Una llave entregada como promesa para atravesar el desierto. Es decir:
+Alguien se la entregó en la primera etapa de su trayecto, prometiéndole que esa llave abriría las puertas de una inmensa mansión, un refugio lleno de cascadas, comida y descanso sabroso. Desde ese día, el caminante se aferró a la llave. La apretaba en su mano con orgullo bajo el sol calcinante. Se sentía seguro por poseerla. Se la mostraba a otros caminantes lejanos que apenas se veían por el polvo caliente, levantándola al cielo como prueba indiscutible de que algún día alcanzaría esa casa prometida.
 
-Alguien le dio una llave en la primera etapa de su trayecto, casi antes de empezar su camino largo agobiante. Y desde entonces, se aferró a esa llave y emprendió aquella caminata larga, pesada y agotadora, buscando la ciudad de oro que le habían prometido cuando le dieron esa valiosa llave de oro puro.
+... Y varios días después de tanto caminar, el peregrino llega a la ciudad, y se para frente a la casa.
 
-Y mientras avanza en el desierto bajo el sol, entre la arena y el dolor, aprieta en su mano la llave, que es de una inmensa mansión de una ciudad de oro, una mansión llena de banquetes, árboles frescos, cascadas, agua fresca, techo, comida, frescura y descanso sabroso. 
+Pero aquí es donde ocurre la tragedia que te quiero contar:
 
-Él tiene la llave. Se siente seguro por poseerla. 
+El caminante toca la pared de la mansión. Tiene la llave en su mano derecha... pero se sienta en la arena caliente, bajo el sol, y trágicamente se queda afuera. Poseyendo el acceso al paraíso, jamás la introduce en la cerradura. Jamás gira el picaporte. Jamás empuja la puerta. Y jamás entra a la casa.
 
-La levanta delante de otros caminantes lejanos que apenas se ven por el polvo caliente, levanta la llave al cielo mostrándola como prueba indiscutible de que algún día alcanzará a llegar a esa casa prometida en esa ciudad de oro.
+Se muere de sed y de hambre con la llave de oro puro colgada en su cuello.
 
-... Y varios días después de tanto caminar, el peregrino llega a la ciudad, y llega a la casa.
+Y así... exactamente así, compadre, es como muchos hoy en día están viviendo su cristianismo cada domingo en las iglesias.
 
-Pero pasa una tragedia de la que te hablo:
+¡Despertá! Esa llave de oro puro es JESUCRISTO. Y esa mansión rebalsando de agua viva es la presencia misma del ESPÍRITU SANTO. 
 
-Y, trágicamente, toca la primer pared de la casa y teniendo la llave para abrirla, se queda afuera, se sienta en la arena caliente, bajo el sol, y trágicamente se queda afuera. Y teniendo consigo la llave, jamás abre la puerta, jamás entra a la casa. 
+El mayor error del cristiano disfrazado no es rechazar a Jesús. ¡Oh, no! El fariseo disfrazado es demasiado astuto, demasiado "espiritual" para rechazar al Salvador abiertamente. Su jugada más sutil y peligrosa es haber recibido la llave de la salvación un día en el altar... para luego guardarla en el bolsillo de la rutina sin usarla jamás para entrar a la comunión íntima con el Consolador.
 
-Jamás se sienta a la mesa para disfrutar, no entra a tomar agua fresca limpia, no entra para saciarse de la comida del banquete sabroso que le daría vida y descanso sabroso en la sombra refrescante. 
-
-Y así... exactamente así, es como muchos hoy en día están viviendo cada domingo en las iglesias.
-
-Hemos recibido una llave de oro a CRISTO, a JESÚS. Cuando nos dieron la llave lo confesamos con nuestros labios. Tú llevás Su nombre colgado como una medalla al cuello. Tú has recibido la llave de oro, JESÚS. Y es una llave perfecta, gloriosa, innegable, valiosa, verdadera llave llena de su Gracia. 
-
-Pero, decime... ¿de qué sirve tener en la mano la llave del tesoro más grande del universo? 
-
-Y voy un paso más allá, querido amigo: ¿de qué te sirve, incluso, llegar a insertar esa llave en la cerradura, si tú jamás girás el picaporte, jamás abrís la puerta, jamás entrás, y nunca te atrevés a usar, disfrutar y vivir de todo ese tesoro, ese cofre del valioso y verdadero tesoro?
-
-Este es el drama de la iglesia moderna actual. Hemos convertido al HIJO DE DIOS en un amuleto doctrinal. En un símbolo de estatus religioso. 
-
-Hablamos de la Llave en nuestros cultos, cantamos canciones sobre la Llave, discutimos teológicamente sobre la mismísima Llave (JESÚS)... pero el cofre de nuestro corazón permanece cerrado. Sellado bajo candados de orgullo y religiosidad. 
-
-Entonces el Tesoro verdadero, la presencia viva, ardiente y transformadora del ESPÍRITU SANTO... permanece ignorado y sin usar.
-
-Decime... ¿recordás las palabras del MAESTRO? Aquellas palabras misteriosas y desconcertantes coloquiales que pronunció antes de ir a la cruz, cuando dijo: 
-
-—"Les conviene que YO me vaya". 
-
-¡Qué declaración tan extraña para oídos humanos! ¿A quién le convendría perder la presencia física de JESÚS? A los discípulos les dolió y no entendían. Ni la mamá de Tarzán lo hubiera entendido. A muchos de nosotros también nos confunde o tampoco entendemos. 
-
-Pero ÉL, JESÚS mismo, añadió inmediatamente la razón de por qué se tenía que ir, es decir: la promesa suprema, cuando dijo: 
-
-—"Les conviene que YO me vaya, porque si no me voy, el CONSOLADOR ESPÍRITU SANTO no vendrá a ustedes".
-
-¡Aquí está la mera razón, pues!: 
-
-El mayor error del cristiano disfrazado no es rechazar la Llave. ¡Oh, no! El fariseo disfrazado es demasiado astuto, (entre comillas) es demasiado "espiritual" para rechazar a JESÚS abiertamente. 
-
-Su mayor tragedia, su jugada más sutil y peligrosa, es guardar la llave en el bolsillo sin usarla. Es aceptar la religión que rodea a CRISTO, pero ignorar la razón misma por la que ÉL vino, murió y resucitó: para perdonarnos y derramar sobre nosotros el fuego del ESPÍRITU SANTO. 
-
-Para que tú nacieras de nuevo. No para que aprendieras a imitar la santidad... sino para que la santidad misma habitara en ti.
-
-Conocer a JESÚS de manera intelectual, saber la historia, memorizar la Biblia... no significa absolutamente nada si tu vida no es guiada diariamente por su ESPÍRITU. 
-
-Dejate de engañarte. Tener la doctrina correcta no salva a nadie si el cofre del corazón sigue cerrado a la transformación diaria. Podés tener toda la teología reformada en tu cabeza, podés conocer el griego y el hebreo, conocer la historia completa, pero si el ESPÍRITU SANTO no es tu compañero diario, tu consejero, tu guía, el dueño absoluto de tus decisiones y pensamientos... tú, querido amigo, solo tenés una religión entrenada, vacía y falsa.
-
-Tú tenés la Llave de oro puro (JESÚS MISMO). Sí, lo admito. Pero seguís siendo prisionero de tu propia apariencia, quedándote fuera de la mansión. 
-
-Es hora de tomar la Llave... y atreverte, de una vez por todas, a abrir la puerta, entrar y disfrutar el cofre valioso.
+Dejate de cuentos. Tener la doctrina correcta no salva a nadie si el cofre del corazón sigue cerrado. Podés conocerte la historia completa, saberte la Biblia al derecho y al revés, pero si el ESPÍRITU SANTO no es tu compañero diario, tu consejero, el dueño absoluto de tus decisiones y pensamientos... tú, querido amigo, solo tenés una religión entrenada, estéril y vacía.
 
 Pensalo por un momento... acompañame en esta reflexión. 
 
-¿Qué sucede exactamente cuando las luces de la iglesia se apagan? ¿Qué pasa cuando la música termina, cuando los saludos de despedida terminan y tú cruzás la puerta para volver a la realidad de tu semana? 
+¿Qué sucede exactamente cuando las luces de la iglesia se apagan? El lunes, al comenzar un nuevo día por la mañana, JESÚS vuelve a ser guardado en la gaveta del diario vivir. Hemos cometido el atrevimiento, la osadía temeraria espiritual, de convertir al Rey de Reyes en una pieza de museo que solo admiramos los domingos. 
 
-El lunes, al comenzar un nuevo día por la mañana, la Llave vuelve a ser guardada en el cajón de la rutina o en la gaveta del diario vivir. Hemos cometido el atrevimiento, la osadía temeraria espiritual, de convertir a JESÚS en una pieza de museo. 
+Tú vivís, respirás y actuás como si el ESPÍRITU SANTO sufriera de amnesia de lunes a sábado. Como si ÉL se quedara encerrado entre las paredes del edificio de la iglesia, esperando pacientemente a que tú regreses la próxima semana para volver a interpretar tu papel actuado y falso.
 
-Lo hemos puesto dentro de una vitrina de cristal los días domingo. Lo admiramos, sí. Le cantamos también. Hablamos de lo hermoso que es... pero bajo ninguna circunstancia permitimos que ÉL salga de esa vitrina para guiar nuestro lunes por la mañana, nuestro martes en la oficina, o nuestro viernes por la noche, peor los sábados de paseo por la tarde, ni te has de acordar que JESÚS está allí contigo.
+El verdadero evangelio no vino para decorar tu VIEJA NATURALEZA con vocabulario cristiano, sino para clavarla en una cruz. No fuiste salvo para aprender a imitar la santidad... sino para que la santidad misma habitara en ti.
 
-Tú vivís, respirás y actuás como si el ESPÍRITU SANTO sufriera de amnesia de lunes a sábado. Como si ÉL se quedara encerrado entre las paredes del edificio de la iglesia, esperando pacientemente a que tú regreses la próxima semana para volver a interpretar tu papel actuado y falso. 
+Y mientras tú intentás procesar la profundidad de tu propia religiosidad, DIOS continúa observándote en silencio, así calladito… no con odio, sino con ese AMOR SANTO y doloroso que mira a un heredero inmensamente rico que ha decidido, por voluntad propia, morir de hambre en la mera puerta del palacio real, simplemente porque le aterra soltar el control y abrir la puerta.
 
-Pero escúchame bien... el temor de DIOS no es una postura física durante un cántico, o cerrar los ojos en la iglesia pensando en el partido, o si dejaste conectada la plancha, o pensar en otra cosa mientras los himnos intentan llegar al cielo. 
+Miráte con detención y sin excusas. Has construido un cristianismo de vitrina. Un cristianismo predecible y dolorosamente seguro. Has logrado domesticar tu religión para que encaje perfectamente en tu apretada agenda, para que no interfiera con tus negocios, con tus relaciones secretas, ni con las oscuras intenciones de tu mente. 
 
-El temor de DIOS es la consciencia absoluta, aplastante y gloriosa, de que ÉL te está mirando en la oscuridad de tu habitación, cuando tú pensás solo, cuando tú maquinás tus mentiras, cuando creés que nadie más te ve.
-
-Y aun así, tú seguís acomodando cuidadosamente el disfraz de fariseo cada domingo, como un actor que teme más perder la aprobación de los hombres que la presencia de DIOS, y limpiás el exterior del sepulcro, perfumás tu traje religioso falso y ensayás palabras espirituales antes de entrar a la iglesia cada domingo, mientras el ESPÍRITU SANTO observa el estado real de un corazón que jamás se rindió completamente. 
-
-Porque delante de los hombres tú podés sostener una reputación falsa… pero delante de DIOS, hasta tus pensamientos más silenciosos gritan la verdad de quién eres realmente. 
-
-Y es allí... en tu cuarto, en tu soledad secreta, donde el fariseo disfrazado revela su verdadera identidad.
-
-Podés engañar a tu líder o pastor. Podés engañar a tu familia. Podés engañar también a los hermanos de la iglesia cada domingo. Podés usar el vocabulario cristiano con una destreza que asombra a quienes te rodean. 
-
-Pero en lo privado... en ese lugar donde no hay público que te aplauda, tu espíritu humano está vacío, y tú sabés de lo que te estoy hablando. Porque tú conocés el lenguaje del Reino... pero hace mucho tiempo que le perdiste el respeto al REY. 
-
-Y lo más aterrador no es que otros no lo sepan… lo más aterrador es que tú sí lo sabés, y que tú mismo ya aprendiste a convivir con esa mentira. Hay veces que mentís, ¡dejate de cuentos!
-
-Sabés exactamente cuándo dejaste de buscar a DIOS con sinceridad y cuándo tú comenzaste a sustituir la presencia de DIOS por rutina religiosa falsa. 
-
-Sabés cuándo el altar se convirtió en escenario, cuándo la oración se volvió actuación y cuándo empezaste a usar el nombre de JESÚS como un disfraz respetable para esconder un corazón que ya no tiembla delante del ESPÍRITU SANTO. 
-
-Porque el fariseo disfrazado no siempre es un rebelde escandaloso; muchas veces es un experto religioso que aprendió a convivir con su alma árida y seca mientras sigue levantando las manos en el templo como si todavía hubiera fuego dentro de él.
-
-Si el ESPÍRITU SANTO no es el dueño absoluto de tus pensamientos cuando tú estás a solas frente a una pantalla... si ÉL no dirige tus finanzas, tus reacciones, tus silencios y tus palabras en la intimidad de tu hogar... entonces, querido camarada y amigo, dejame decírtelo con el dolor de un pastor pero con la firmeza de la verdad: tú no has nacido de nuevo. 
-
-Tú simplemente has aprendido a comportarte como alguien que sí lo hizo. 
-
-Porque un actor religioso puede memorizar himnos, levantar las manos y hasta conmover multitudes… pero cuando las luces del templo se apagan y el silencio llena la habitación, queda al descubierto quién gobierna realmente tu corazón. Y si en ese lugar secreto CRISTO no reina, entonces tu cristianismo no es una vida transformada… es solamente un escenario cuidadosamente iluminado para ocultar un alma que todavía sigue sentada lejos de DIOS.
-
-Tener la llave no te hace salvo, si jamás has rendido el gobierno de tu vida al ESPÍRITU SANTO Consolador. 
-
-Porque JESÚS mismo declaró: 
-
-—"Les conviene que yo me vaya, para que venga el Consolador". 
-
-El ESPÍRITU SANTO que ÉL mismo prometió antes de regresar al cielo. Y, sin embargo, muchos recibieron a CRISTO como símbolo… pero nunca escucharon su voz ni permitieron que el ESPÍRITU SANTO entrara y se sentara a la mesa con ellos. 
-
-Recordá querido amigo, no basta con admirar la escena desde afuera; el ESPÍRITU SANTO debe entrar, permanecer y vivir dentro de ti. Recordá que Apocalipsis 3:20 dice: 
-
-—"Si alguno oye mi voz y abre la puerta, YO entraré a él, y cenaré con él y él Conmigo".
-
-Hemos reducido el evangelio a SOLO "aceptar a CRISTO". 
-
-Nos dijeron que bastaba con solo levantar la mano, pasar al frente, repetir una oración, y recibir un abrazo y tal vez un regalito. Y te pregunto cara a cara directamente: ¿tú, amigo, aún te acordás de la fecha y la hora cuando ACEPTASTE A CRISTO y pasaste al frente, querido amigo? ¿No te acordás? 
-
-Bueno, ese momento debe ser único… ese momento debe ser muy sincero, valioso y profundamente importante, porque reconocer a CRISTO es el primer paso hacia la vida y la relación con ÉL. 
-
-Recordá: el Evangelio no termina cuando tú recibís la llave como SALVADOR PERSONAL. CRISTO jamás fue entregado al hombre para convertirse en un recuerdo religioso colgado en el pecho, ni en una frase repetida desde un altar. CRISTO no fue entregado para convertirlo en una costumbre repetitiva dominical aprendida con los años. 
-
-¡No! Esa llave fue dada para abrir la puerta más profunda del corazón humano y conducir intencionalmente al hombre hacia la PRESENCIA VIVA Y REAL DEL ESPÍRITU SANTO. 
-
-De nada sirve besar la llave, y apretarla contra tu pecho, ni predicar la llave o exhibir la llave… si el Cofre permanece cerrado y el alma continúa vacía delante de DIOS cada día.
-
-Dios ya no te puede amar más, porque cuando te amó, ... te amó a tope, lo dio todo, dio a su Hijo único. Dios no dijo te voy a amar cada día más según tu fe, o según tu amor por mí, ¡NO! Dios jamás dijo eso, Dios cuando te ama lo da TODO. 
-
-Así que DIOS te amó fuerte e intencionalmente a ti, mi amigo, te amó de tal manera que entregó esa llave única, por amor, y te la dio a ti para abrir cada momento la puerta de tu corazón al OMNIPOTENTE, VIVO Y REAL ESPÍRITU SANTO. 
-
-Y el nuevo nacimiento no termina en un altar; ¡de hecho allí comienza!… pero debe continuar en una despertá vida rendida, muy consciente, transformada y guiada por ÉL. 
-
-Pero nadie te advirtió que la salvación no es un evento de un instante que te da un pase libre y de gratis al cielo mientras tú seguís viviendo como te da tu reverendísima gana en la tierra. Nadie te dijo que recibir a CRISTO era firmar tu propia sentencia de muerte: la muerte de tu yo, la muerte de tus deseos, la muerte de tu disfraz de fariseo.
-
-El verdadero evangelio no vino para decorar tu VIEJA NATURALEZA con vocabulario cristiano falso, sino para clavarla en una cruz ESPIRITUAL. 
-
-Y allí, frente al altar, donde DIOS te está mirando, allí el fariseo disfrazado tiembla, porque descubrís que seguir a CRISTO no era añadir una religión cómoda a tu vida… sino entregar completamente el trono de tu corazón. ¡PERO DE VERDAD! 
-
-Tú caminás con la Llave en la mano, creyendo que el simple hecho de tenerla te salva y te libra del juicio de DIOS. Pero esa misma Llave (JESÚS) que hoy tú exhibís como un adorno cada domingo, será la que mañana te condene si no escuchás SU VOZ, si tú no la usás hoy para abrirle la puerta al ESPÍRITU SANTO y permitirle que entre, incendie, limpie y transforme cada rincón oscuro de tu vida.
-
-Querido amigo… quizá has llegado al punto de quiebre donde el ruido de tus propias palabras religiosas falsas comienza a derrumbarse dentro de ti. Y te das cuenta que esa religiosidad en vez de ayudarte te está hundiendo. 
-
-Ese lugar silencioso y temible donde ya no sirven los "aleluyas" aprendidos, oraciones idénticas repetidas, frases religiosas que todos repiten, ni las oraciones de siempre con labios entrenados a través de los años, ya que la realidad desnuda de tu alma ha quedado expuesta delante de DIOS calladito. 
-
-Y mientras tú intentás procesar la profundidad de tu propia religiosidad, DIOS continúa observándote en silencio, así calladito… no con odio, sino con ese AMOR SANTO y doloroso que mira a un hombre perdido dentro de su propio disfraz espiritual muy fariseo. 
-
-Recordá, el cielo ya vio lo que quizás apenas tú comenzás a descubrir: que es posible pasar años dentro de la iglesia y aun así vivir letal y peligrosamente lejos del ESPÍRITU SANTO. Acordate, el ESPÍRITU SANTO fue el que se quedó con nosotros. JESÚS mismo dijo que nos convenía irse para enviarnos al ESPÍRITU SANTO. 
-
-Así que DIOS, calladito, te observa… y tú, ¿atrevido jugando a fariseo disfrazado?
-
-¿Entendés realmente la magnitud de la tragedia en la que estás viviendo?
-
-No es una tragedia de escasez. No eres un mendigo espiritual al que se le ha negado el pan. ¡Ese es el horror de tu situación! Eres un heredero inmensamente rico que ha decidido, por voluntad propia, morir de hambre en la mera puerta del palacio REAL tuyo verdadero, simplemente porque te da miedo de usar la llave, abrir, empujar la puerta y entrar.
-
-Tenés la llave (JESÚS), la recibiste un día, así que sí, tenés la llave. La confesás. La defendés. Hasta peleás por ella en acalorados debates teológicos. 
-
-Pero de nada sirve tener en la mano la llave de oro forjado de la salvación, si jamás lo introduces en la cerradura de tu propio orgullo para darle vuelta y escuchar esa voz de Dios. JESÚS te entregó esa llave manchada con Su propia sangre, no para que te la colgaras en el cuello como un amuleto de buena suerte contra el infierno, sino para que abrieras de una vez por todas el cofre sagrado de la presencia viva del ESPÍRITU SANTO.
-
-Y sin embargo... el cofre sigue herméticamente cerrado.
-
-Miráte. Miráte con detención y sin excusas. Has construido un cristianismo de vitrina. Un cristianismo estéril, predecible y dolorosamente seguro. 
-
-Has logrado domesticar tu religión para que encaje perfectamente en tu apretada agenda, para que no te incomode, para que no interfiera con tus negocios, con tus relaciones secretas, ni con las oscuras intenciones de tu mente. Has negociado la gloria ardiente del ESPÍRITU SANTO por la fría comodidad de una banca de iglesia.
-
-Y DIOS... en su infinita y soberana paciencia, te observa.
-
-ÉL ve cómo te esfuerzas domingo a domingo en proyectar una imagen intachable. Ve cómo acomodas tu rostro, cómo afinas tus palabras, y cómo te vistes de una piedad que en lo privado no posees. ÉL contempla tu agotador teatro religioso en absoluto silencio. 
-
-Pero escúchame bien: ese silencio divino no es un aplauso de aprobación. Es la antesala de una tormenta. Es la paciencia de un Padre que espera a que el actor finalmente se canse de su propia obra y caiga de rodillas, exhausto de tanta hipocresía.
+Pero escuchame bien: el silencio divino no es un aplauso de aprobación. Es la antesala de una tormenta. Es la paciencia de un Padre que espera a que el actor finalmente se canse de su propia obra y caiga de rodillas, exhausto de tanta hipocresía.
 
 Porque, decime la verdad... ¿hasta cuándo creés que podrás sostener este personaje? ¿Hasta cuándo creés que podrás seguir engañando a los hombres, creyendo tontamente que también estás engañando al cielo?
 
-El disfraz de fariseo es muy pesado. Te asfixia. Te chupa la vida lentamente. 
-
-Tú sabés perfectamente que algo te falta. Sabés que debajo de esa impecable armadura de rectitud evangélica, tu espíritu está paralizado. Tenés la doctrina correcta en tu cabeza, pero tenés la muerte misma instalada en el centro de tu pecho. Y lo que es peor, lo verdaderamente escalofriante, es que te has acostumbrado tanto a vivir sin la Presencia, que ya ni siquiera sientes el dolor de su ausencia.
-
-Pero el letargo y todo ese atraso fariseo no puede durar para siempre.
-
-Y como decía mi papá, el pastor Mauricio Barrientos: 
+Como decía mi papá, el pastor Mauricio Barrientos: 
 
 —"Tarde o temprano, y más temprano que tarde".
 
-La escenografía de tu teatro de apariencias se va venir abajo. 
+La escenografía de tu teatro de apariencias se va a venir abajo. Tú sabés que la llave viene del mundo espiritual, y que Colosenses 1:16 nos dice que lo invisible fue creado ANTES que lo visible. El mundo espiritual es más real que el aire que respirás. 
 
-Y tú lo sabés amigo. Tarde o temprano, la temperatura de tu alma bajará tanto que la escarcha comenzará a verse desde afuera. Y esa fría realidad, ese invierno aterrador de tu espíritu que has intentado ocultar durante tantos años, está a punto de quedar brutalmente expuesto.
+En 1 Corintios 2:14, DIOS dice que el hombre natural no puede percibir las cosas del ESPÍRITU DE DIOS. En otras palabras, si el ESPÍRITU SANTO no gobierna tu vida, tus ojos espirituales están sellados. Muertos. Podés llevar veinte años en la iglesia y seguir completamente ciego a la realidad más urgente de tu existencia.
 
-Y no será en un día de crisis mundana. No. El golpe de realidad te alcanzará en el lugar donde te sientes más seguro. Será allí, en la quietud de tu sagrada rutina dominical, cuando la alarma vuelva a sonar para llamarte a otra función más de tu triste espectáculo religioso...
+¿Y si el ESPÍRITU SANTO lleva años frente a ti, llamándote… esperándote? ¿Y si el problema nunca fue que ÉL estaba lejos, sino que tú jamás abriste la puerta para que entrara de verdad?
 
-¿Y solo porque no entendés el VERDADERO MUNDO ESPIRITUAL, tú creés que ya sos salvo?
-
-Te lo pregunto de otra forma: 
-
-¡Entonces acordemos y aterricemos!
-
-Tú ya tenés la llave, tú ya sabés que la llave viene de un mundo espiritual. ¿Y solo porque la llave viene de un mundo espiritual, crees que no te va funcionar en el mundo material?
-
-Es TOTALMENTE al contrario, ¡quiere decir que la llave espiritual es para que la uses en el mundo material! Somos seres espirituales viviendo en un mundo material, porque el mundo espiritual es más real que el mundo material.
-
-¿Acaso JESÚS no dijo: "me voy para enviarles al ESPÍRITU SANTO"?
-
-Es decir que cuando JESÚS se fue (en la asunción) ÉL regresó a su mundo espiritual, y nos dejó al ESPÍRITU SANTO. ¿No allí está en la Biblia pues?
-
-Mirá bien esto, voy directo al punto.
-
-La Biblia dice en Colosenses 1:16 que lo invisible —el mundo espiritual— fue creado ANTES que lo visible. Antes del aire que respirás, antes de la tierra donde vivís, antes que se creara el tiempo mismo, antes de estos ojos materiales con los que mirás tu cómoda realidad dominical... ya existía el mundo espiritual. 
-
-No es una teoría para consolarte. Es el mundo ESPIRITUAL desde la eternidad que existe. El más real. El único que permanecerá cuando todo lo demás haya desaparecido.
-
-Ahora el problema. En 1 Corintios 2:14, DIOS dice que el hombre natural —ese que cree en solo lo que puede ver y tocar y razonar— simplemente ese tipo de persona NO PUEDE percibir las cosas del ESPÍRITU DE DIOS. 
-
-¡No porque no quiera! 
-¡Es porque no puede! 
-
-En otras palabras quiere decir que si el ESPÍRITU SANTO no ha entrado a tu vida, tus ojos espirituales están sellados. Cerrados. Muertos. Podés llevar veinte años en la iglesia, saberte la Biblia entera, cantar con las dos manos en alto... y seguir completamente ciego espiritual y sordo espiritual a la realidad más urgente de tu existencia.
-
-FUISTE CREADO CON UN PROPÓSITO Y TE LO ESTÁS PERDIENDO, y para lo que te la dieron, no estás usando la llave.
-
-Hay una parte en la Biblia donde aparece un contraste poderoso entre un hijo de Dios —Eliseo— y un hombre natural e incrédulo: su sirviente, Giezi. Eliseo veía las cosas espirituales; Giezi, aunque caminaba a su lado, no podía creerlas.
-
-La historia está en 2 Reyes 6:17. El siervo de Eliseo despertá y ve que un ejército enemigo los tiene completamente rodeados. Entra en pánico al ver que solo son ellos dos contra todo un ejército.
-
-Pero entonces Eliseo pronuncia una frase corta, letal y poderosa:
-
-—“SEÑOR, ábrele los ojos a mi siervo para que vea.”
-
-Y la Escritura dice que, de repente, el siervo vio lo que siempre había estado allí: el monte completamente lleno de caballos y carros de fuego de DIOS. Ese segundo ejército espiritual no apareció en ese momento; ya estaba allí. El problema era que el siervo no podía verlo, porque seguía siendo incrédulo, aun estando al lado del profeta.
-
-También hay otra escena en la que, después de que JESÚS resucita, se acerca a su discípulo Tomás, en Juan 20:24-29. Tomás lo ve, pero no cree que realmente sea JESÚS resucitado. Solo cree cuando mete el dedo en la herida de su mano.
-
-Y ahí es donde se unen y se amarran las dos historias: la de Giezi, el siervo incrédulo de Eliseo, y la de Tomás, el discípulo incrédulo. Ambos necesitaron ver para creer.
-
-Por eso JESÚS dejó registrada una frase eterna:
-
-—“Bienaventurados los que creyeron sin ver.”
-
-Giezi no creyó en el ejército espiritual hasta que lo vio. Tomás no creyó en la resurrección hasta que vio y tocó. Y JESÚS dejó claro que hay una bendición ESPIRITUAL superior para quienes creen antes de ver.
-
-Por eso ahora te pregunto directamente:
-
-¿Y si el ESPÍRITU SANTO lleva años frente a ti, llamándote… esperándote?
-¿Y si el problema nunca fue que ÉL estaba lejos, sino que tú jamás abriste los ojos para verlo?
-
-Tú ya tenés la llave. El cofre ha estado frente a ti todo este tiempo. Y el ESPÍRITU SANTO te espera con una paciencia que ya debería avergonzarte.
-
-Tal vez la única oración que falta es la misma que hizo Eliseo: Para que abras HOY los ojos espirituales y recibas esa súper bendición espiritual para que creas, y para que seas bienaventurado, como dijo JESÚS.
 
 ---
+
 
 ## CAPÍTULO 2 — Domingos de Invierno
 
 
-Querido amigo… hay algo que quiero que entiendas antes de que sigas leyendo. El invierno espiritual no te avisa. No llega con sirena, ni llega con pitos y tambores avisando, no golpea tu puerta con el puño, no anuncia su nombre en voz alta. 
+Querido amigo… hay algo que quiero que entendás antes de seguir leyendo. El invierno espiritual no avisa. No llega con sirenas, ni pitos, ni tambores. No golpea tu puerta con el puño cerrado. 
 
-No. El invierno espiritual es el más cobarde de todos los invasores, porque entra en silencio absoluto. Se cuela por las rendijas, despacito, como el frío que atraviesa la ventana mal cerrada a las tres de la mañana mientras tú dormís tan tranquilo. Y para cuando lo venís a sentir, ya lleva meses dentro de ti.
+No. El invierno espiritual es el más cobarde de todos los invasores, porque entra en silencio absoluto. Se cuela por las rendijas, despacito, como el frío que atraviesa la ventana mal cerrada a las tres de la mañana mientras tú dormís tan tranquilo. Y para cuando lo venís a sentir, ya lleva meses instalado dentro de ti.
 
-Así de traicionero es. Así de silencioso. Así de letal.
-
-Dejame describírtelo como fue. Comenzó con algo tan pequeño que casi da vergüenza mencionarlo. Una oración que antes duraba veinte minutos y un buen día duró diez. Y al mes siguiente… cinco. Después fue el hambre —ese hambre genuina por los cultos, por la presencia, por el encuentro real con DIOS— es decir: tú seguís yendo a la iglesia pero sin hambre espiritual. 
+Comenzó con algo tan pequeño que casi da vergüenza mencionarlo. Una oración que antes duraba veinte minutos, un buen día duró diez. Y al mes siguiente… cinco. Después fue el hambre —ese hambre genuina por la presencia real con DIOS— la que desapareció. 
 
 Simplemente… se fue enfriando. Gradualmente. Silenciosamente. Fatalmente.
 
-Pero tú seguiste cantando los mismos himnos. Seguiste levantando la misma mano. Seguiste respondiendo "¡Gloria a DIOS!" con la misma entonación aprendida. Y aquí está lo más aterrador de todo esto, amigo: ni siquiera te diste cuenta del momento exacto en que tu adoración dejó de ser real y se convirtió en costumbre. 
+Pero tú seguiste cantando los mismos himnos. Seguiste levantando la misma mano. Seguiste respondiendo "¡Gloria a DIOS!" con la misma entonación ensayada. Y aquí está lo más aterrador: ni siquiera te diste cuenta del momento exacto en que tu adoración dejó de ser real y se convirtió en pura y llana costumbre. 
 
-Eso es lo que hace el frío espiritual. No apaga el fuego de golpe. Lo reduce, lo reduce, lo reduce... hasta que lo que ves en el hogar ya no es llama sino rescoldos tibios cubiertos de ceniza. Y tú seguís soplando sobre esa ceniza creyendo que con eso es suficiente.
+El frío espiritual reduce el fuego hasta que lo que ves en el hogar ya no es llama, sino rescoldos tibios cubiertos de ceniza. Y tú seguís soplando sobre esa ceniza creyendo que con eso es suficiente.
 
-Mirá bien esto, porque aquí está la mentira más peligrosa en la que hayas caído: te convenciste de que estabas bien porque no habías pecado escandalosamente. 
-
-Porque tal vez no has cometido adulterio, no has fornicado, no has cometido masturbación, no has fumado, no has tomado, no has tijereado a los hermanitos, no has robado, no has matado a nadie, no has andado en chambres, tal vez te quedaste con el vuelto de centavera, tal vez solo has mentido piadosamente, con mentiritas blancas, quizás evadiste impuestos escondido, no das diezmo pero das ofrenda básica... y entonces, con esa lógica reducida y cómoda, concluiste: 
+Mirá bien la mentira más peligrosa que te tragaste: te convenciste de que estabas bien porque no habías pecado escandalosamente. Como no cometiste adulterio, ni robaste, ni andás de borracho por las calles... con esa lógica reducida y cómoda concluiste: 
 
 —"Yo estoy bien. No soy de los que están mal." 
 
-Como si el único termómetro de la salud espiritual fuera la ausencia del pecado alarmante visible. ¡Qué error tan grande, mi viejo! Porque la muerte espiritual no siempre huele a escándalo. A veces huele a iglesia. A veces huele a diezmo pagado puntual. A veces huele a Biblia abierta… pero no leída con hambre. Acordate lo que decía mi tata pastor: 
+¡Como si el único termómetro de la salud espiritual fuera la ausencia de un escándalo público! ¡Qué error tan grande, mi viejo! La muerte espiritual no siempre huele a cantina. A veces huele a iglesia. A veces huele a diezmo pagado puntual y a Biblia abierta… pero no leída. 
 
-—"Que la mejor mentira es la que más se parece a la verdad".
+Lo que antes te quebraba hasta las lágrimas, ahora te parece nomás un tema teológico interesante. Una predicación que antes te dejaba despierto hasta la madrugada preguntándote cosas serias sobre tu conducta, hoy te entra por un oído y te sale por el otro antes de que llegués al estacionamiento. Y lo normalizaste. Le pusiste un nombre bonito: "madurez". ¡FUE HORRIBLE, FUE HORRIBLE!
 
-Lo que antes te quebraba hasta las lágrimas, ahora te parece un tema teológico interesante nomás. Lo que antes hacía temblar y buscar el rostro de Dios clamando, ahora apenas mueve la punta de tu pie. 
-
-Una predicación que antes te dejaba despierto hasta la madrugada preguntándote cosas serias sobre tu vida y tu conducta y tu caminar, hoy te entra por un oído y te sale por el otro antes de llegar al estacionamiento de la iglesia. 
-
-Y lo más devastador de todo es que eso ya no te preocupa. Ya lo normalizaste. Ya le pusiste nombre bonito: "madurez en la iglesia", "equilibrio", ¡FUE HORRIBLE, FUE HORRIBLE!
-
-Pero yo te digo la verdad esta noche, sentados aquí juntos, con toda la confianza que me das: eso no es madurez en la iglesia. Eso es hielo. Eso es el entumecimiento que siente quien se está congelando y en lugar de correr al calor, decide taparse con otra cobija para no sentir el frío. 
-
-El peligro mortal del invierno espiritual no es que se vea oscuro y aterrador. El peligro mortal es que se siente… cómodo. Tibio. Administrable. Tolerable. Y se vuelve un hábito.
-
-Y mientras tú administrás tu tibieza con mucha dignidad religiosa, el ESPÍRITU SANTO sigue llamando desde el otro lado de la puerta. Golpeando desesperado con amor. Esperando. 
-
-No con enojo, sino con la paciencia terrible de quien sabe que el tiempo se acaba y que tú, querido amigo, llevas demasiado tiempo congelado creyendo que estás en primavera.
+Eso no es madurez. Eso es el entumecimiento que siente quien se está congelando a muerte y en lugar de correr al calor, decide taparse con otra cobija. 
 
 El domingo por la mañana llegó. Y con él... llegó también tu actuación.
 
-No te levantás con hambre. No te levantás con anticipación. No hay nada en tu pecho que lata diferente porque hoy es el día en que vas a estar delante del REY DEL UNIVERSO. 
+El despertador suena y tu cuerpo obedece por inercia, exactamente como lo hace el motor de una máquina bien aceitada. Te parás frente al armario, elegís los zapatitos chulos y la imagen calculada del "buen creyente" que va a desfilar entre las sillas. Te vestís para el escrutinio del ojo humano con una dedicación que jamás le das a tu alma. Te mirás al espejo y ensayás la postura. Ya estás actuando, y todavía ni has salido de tu casa.
 
-El despertador suena y tu cuerpo obedece por inercia, exactamente como lo hace el motor de una máquina bien aceitada que no necesita razón para funcionar. Solo necesita que alguien presione el botón. Y el domingo… es el botón.
+Desayunás, escuchás coritos, te cepillás los dientes, agarrás la Biblia gastada, le dejás comida al chucho, salís y te vas; para colmo vas tarde siempre.
 
-Mirá bien lo que hacés, paso a paso. Porque en este ritual matutino se esconde toda la tragedia de tu condición.
+Durante el trayecto, mientras suena la alabanza de turno, ¿en qué pensás realmente? En las cuentas, en el partido de fútbol, en si dejaste la plancha conectada. La Gloria del ALTÍSIMO la has reducido a una cita semanal de noventa minutos encajonada en tu apretada agenda.
 
-Te parás frente al armario. Y ahí comienza el único ritual que realmente te importa ese día: elegir la ropa correcta. El color adecuado. El accesorio preciso. Los zapatitos chulos. La imagen calculada del "buen creyente" que va a desfilar entre las sillas de la iglesia. 
-
-Te vestís para que te vean entrar a la iglesia, te vestís para el escrutinio del ojo humano con una dedicación que nunca le has dado a la condición de tu alma. 
-
-Te mirás al espejo, y sin darte cuenta, ensayás la postura. La mirada serena. La expresión de alguien que tiene todo bajo control espiritual. Ya estás actuando, y todavía no has salido de tu casa.
-
-Desayunás, escuchás coritos, te cepillás los dientes, buscás la Biblia gastada, cerrás la puerta del cuarto, le dejás comida al chucho, salís y te vas; para colmo vas tarde siempre.
-
-Luego viene el trayecto. Las mismas calles de siempre, el mismo semáforo en rojo de siempre, la misma música de alabanzas y coritos que ponés no porque te mueva el Espíritu sino porque es lo que "corresponde" escuchar de camino a la iglesia. 
-
-Y mientras esa música suena, ¿en qué pensás realmente? En las cuentas que vencen el martes. En la discusión que tuviste el sábado en la noche. Pensás si dejaste la plancha conectada, la cocina prendida. En si alcanzará el tiempo para almorzar después del servicio. 
-
-Tu mente recorre el universo entero de tus preocupaciones cotidianas… y DIOS no aparece en ninguna de esas paradas ni en ningún semáforo.
-
-Mi querido viejo, esto es lo que más duele decírtelo, mi querido compadre: eso ya no te incomoda. Ya ni te das cuenta. 
-
-Has logrado construir un domingo funcional, rutinario, efectivo, respetable… completamente vacío de expectativa Divina. La Gloria del ALTÍSIMO —esa presencia que hizo temblar montañas, que partió mares, que resucitó muertos— la has reducido a una cita semanal de noventa minutos encajonada en tu apretada agenda. Una obligación más entre el desayuno y el almuerzo.
-
-Llegás al templo. Si vas en carro te estacionás. Acomodás tu Biblia bajo el brazo con el gesto ensayado de quien viene preparado como si has orado una hora en tu casa antes de salir. 
-
-Y caminás hacia la entrada con esa postura tuya, y la seguridad tranquila de un actor entrenado que conoce de memoria cada tabla del escenario. No hay temblor en tus rodillas. No hay pregunta urgente en tu corazón. No hay la más mínima posibilidad, en tu mente, de que hoy el cielo pueda romperse y abrirse sobre ti y cambiar tu vida para siempre.
-
-Porque ese tipo de cosas… les pasa a los nuevos creyentes. A los que recién empiezan. A los "inmaduros emocionales." Tú ya superaste esa etapa. Tú ya sos un cristiano maduro, estable, equilibrado, tal vez contribuís en la iglesia, ordenando sillas, o cuidando niños, o saludando hermanitos. Te creés ya maduro espiritual por esas cosas y por el tiempo que llevás en la iglesia. 
-
-Recordá dos cosas puntuales aquí:
-
-Primero, la madurez espiritual no se mide con el mucho tiempo que llevás calentando la banca en la iglesia con las nalgas.
-Segundo, "la mejor mentira es la que más se parece a la verdad", hasta el pastor Lucas lo decía a veces.
-
-Y esa convicción —escuchame bien— esa convicción tranquila y satisfecha de que ya llegaste a cierta madurez espiritual (según tú), o que ya creciste espiritualmente, ya no necesitás que DIOS te sorprenda... es exactamente el síntoma más definitivo de que el invierno ya terminó de instalarse dentro de ti. 
-
-No llegaste a la madurez espiritual. Llegaste al entumecimiento. Y la diferencia entre los dos... es la diferencia entre un hombre vivo y un hombre que todavía no sabe que está muerto.
-
-Las puertas del templo se abren. Y en ese preciso instante —no antes, no después— ocurre algo que ya se ha vuelto tan automático en ti que ni siquiera lo notás. La máscara desciende. Suavecito. Sin esfuerzo. Como quien se pone los anteojos de siempre antes de salir a la calle. Y el fariseo disfrazado que entró por esa puerta ya no sos tú. Es tu personaje. Tu versión del domingo. El que ensayaste esa mañana de domingo.
+Llegás al templo. Las puertas se abren. Y en ese preciso instante ocurre algo que ya se ha vuelto automático: la máscara desciende. Suavecito. Como quien se pone los anteojos de siempre. Y el fariseo disfrazado que entró por esa puerta ya no sos tú. Es tu personaje. 
 
 Bienvenido al teatro del saludo.
 
-Y mirá, no te digo que sos el único actor en esa obra. El templo está lleno de ellos. Ahí viene el hermano Juan, con su sonrisa de catálogo y su abrazo de dos segundos exactos —ni uno más, que eso ya sería sospechoso de emoción genuina—. 
-
-—"¡DIOS LE BENDIGA!"
-
-Ahí viene la hermana Mary, que te pregunta cómo estás con una voz tan dulce que parece transmisión de radio cristiana. Y tú —con la fluidez de quien lo ha repetido tres mil domingos— respondés sin pensar:
+El templo está lleno de actores como tú. Ahí viene el hermano Juan con su abrazo de dos segundos exactos —ni uno más, que eso ya sería sospechoso de emoción genuina—. Ahí viene la hermana Mary preguntándote cómo estás con voz de transmisión de radio. Y tú, con la fluidez de quien lo ha repetido tres mil domingos, respondés:
 
 —"¡Bendiciones, hermana! ¡Aquí, mire, gracias al Señor!" 
 
-Y seguís caminando. Porque si te detenés demasiado, si dejás que la conversación vaya más allá de las frases de protocolo, existe el riesgo aterrador de que alguien te pregunte algo real. Y para eso... no tenés respuesta preparada.
+Y seguís caminando. Porque si te detenés demasiado, existe el riesgo aterrador de que alguien te pregunte algo real y te descubra la sequía. Tu vocabulario evangélico no es expresión de fe; es un sistema de seguridad blindado para mantener a todos a raya. 
 
-Porque la verdad es esta: el vocabulario evangélico que usás cada domingo no es una expresión de fe, y difícilmente lo usás en medio de la semana. Es un sistema de seguridad. Un lenguaje codificado que funciona perfectamente para mantener a todos a la distancia correcta sin que nadie sospeche nada. 
+*"¡DIOS LE BENDIGA!"* significa: *"No me preguntés más."* 
+*"¡Dios es fiel!"* significa: *"Tengo clavos, pero no te los voy a contar."* 
 
-*"¡DIOS LE BENDIGA!"* significa: *"No preguntes más."* 
-*"¡Dios es fiel!"* significa: *"Tengo problemas, pero no te los voy a contar."* 
-*"¡Bendecido y agradecido!"* significa... bueno, ni tú mismo sabés ya qué significa, porque lo decís tan seguido que ya no pasa ni por tu cabezota antes de salir por tu boquita chula.
+Detrás de esa sonrisa calculada hay un alma que grita en silencio. Estás rodeado de gente y estás completamente solo. Y esa frialdad que cargás desde las puertas del templo hasta el último amén del servicio, ya ni te pesa. Ese es el arte del fariseo disfrazado: haberse engañado tanto tiempo a sí mismo que el disfraz ya se siente como piel.
 
-Y si algún incauto —algún hermano nuevo que todavía no conoce las reglas del juego— se atreve a preguntarte cómo estás de verdad, con los ojos fijos en los tuyos, con mucha sinceridad, esperando una respuesta honesta... ahí está tu arsenal listo. 
+Suenan las alabanzas. Tu instinto de actor se activó. Sabés exactamente cuándo levantar las manos, cerrar los ojitos y agachar la cabeza. Ejecutás la coreografía de la adoración contemporánea con una precisión milimétrica. A veces cantás: *"Todo lo que soy te lo entrego a ti, mi SEÑOR"*. Las cantás con el pecho lleno. Pero decime, ¿cuándo fue la última vez que esa letra fue también la declaración honesta de tu martes por la tarde cuando nadie te miraba?
 
-Disparás un versículo. Soltás una frase teológica. Decís algo profundo que suena tan espiritual que el otro automáticamente retrocede, impresionado, levantando las cejas del corazón, pensando que acaba de hablar con un gigante de la fe. Y tú seguís tu camino, satisfecho. 
+Lo tuyo tiene un nombre muy preciso: *performance dominical*. 
 
-La fachada se sostuvo. Nadie se descuajó, y nadie vio nada. Prueba superada.
+El cielo escucha. Y el cielo sabe diferenciar perfectamente entre el ruido que sube de un actor entrenado y el clamor que sube de un corazón rendido de verdad. 
 
-Tu actuación es tan cabal que yo casi te la creo, compadre, pero DIOS sí lo vio bien, leyó el código evasivo de tu corazón, y Él sabe muy bien tu situación de fariseo disfrazado.
+Y cuando el pastor empieza a predicar, te recostás en la silla. Cruzás las piernas. Filtrás el sermón para aplicárselo a los demás con la precisión clínica de un doctor maduro: *"Ojalá mi cuñado estuviera aquí hoy, esto le cae perfecto."* Tenés una habilidad asombrosa para torear la Palabra de DIOS y redirigirla hacia cualquier dirección... excepto hacia ti. No, si la Biblia la parafraseás bien cabalito.
 
-Detrás de esa sonrisa calculada, detrás de ese abrazo mecánico que no calienta a nadie, detrás de ese *"¡aleluya!"* que salió de tu boca sin pasar ni cerca de tu corazón... hay un alma que grita en silencio. Un espíritu que lleva meses, quizá años, completamente solo en medio de la multitud más concurrida de tu semana. 
+Sos un archivador meticuloso de verdades Bíblicas, pero un analfabeto en obediencia. Solo calentás la silla con las nalgas mientras la Palabra rebota en tu pecho de cemento. Y al terminar, salís al parqueo diciendo genuinamente *"¡Qué tremenda palabra!"*, pero tu vida secreta sigue exactamente igual que antes de entrar. Sin un solo rasguño.
 
-Y lo más triste de todo —lo que me duele decírtelo pero te lo digo igual porque te merecés que te lo diga— es que ya aprendiste a ignorar ese grito. Ya le pusiste el volumen en cero. Ya normalizaste la soledad espiritual hasta el punto de confundirla con madurez. 
+Y si sos de los que no calientan la silla porque sos el ujier, el que arregla el sonido o el maestro de escuela dominical, ¡cuidado! Servir A DIOS no es lo mismo que servir EN EL NOMBRE de DIOS para que te vean. En la Biblia no hay mandamiento que diga que acomodar sillas te hace más santo. Me atrevo a decir que te ayuda más a mejorar tu espiritualidad lavar los inodoros de la iglesia a solas, que estar en la puerta dando abrazos fingidos. ¡Nombre!
 
-*"No soy de los que lloran en los altares. Ya superé esa etapa."* 
-
-¡Y ya no dejás que te confronte tu DIOS! ¡Dejate de cuentos que ya no pasás al frente!
-
-Sí, claro. La superaste tan bien que ya ni siquiera recordás cuándo fue la última vez que tuviste una conversación honesta con alguien sobre el estado real de tu alma buscando ayuda. Ni en la iglesia —porque ahí está el teatro— ni en tu casa —porque ahí está el orgullo—. Ni siquiera a solas con DIOS, porque para eso tendría que existir una vida de oración real, y eso... también se fue enfriando hace tiempo.
-
-Y si llegás a usar tu boca para decir cosas de DIOS, es para aconsejar, como demostrando que sabés más, y solo aconsejás a los de bajo nivel, tiernitos, inmaduros, nuevos...
-
-Estás rodeado de gente. Y estás completamente solo. 
-
-Y esa soledad, esa frialdad que cargás desde las puertas del templo hasta el último amén del servicio, ya ni te pesa. La disfrazaste también. Le pusiste el mismo maquillaje que le pusiste a todo lo demás.
-
-Ese es el arte del fariseo disfrazado: no solo engañar a los demás. El verdadero logro es haberse engañado tanto tiempo a sí mismo que el disfraz ya se siente como piel.
-
-Suenan las alabanzas; acaban de comenzar. 
-
-Y aquí —aquí es donde el fariseo disfrazado hace la entrada de acróbata, sin exagerar ni un milímetro, en el artista más completo de todo el edificio.
-
-El primer acorde despertá algo en ti. No algo espiritual —eso murió hace tiempo—. Lo que despertá es el instinto del actor. El reflejo del entrenamiento. El archivo mental de todos los domingos anteriores, indicándote con precisión quirúrgica lo que toca hacer en este momento. Y el cuerpo obedece sin consultar al corazón. Sin pedir permiso al alma.
-
-Sabés exactamente cuándo levantar las manos, cerrar los ojitos y agachar la cabeza con reverencia entrenada. No lo pensás: lo ejecutás. Sabés en qué parte de la canción cerrar los ojos con esa expresión de profundidad espiritual que has perfeccionado tanto que ya la aplicás sin esfuerzo consciente. 
-
-Sabés cuándo inclinar la cabeza, cuándo suspirar con la intensidad justa, y —si la canción lo amerita y el ambiente del culto lo exige— sabés incluso cómo producir un rostro consternado. Sí, un rostro estratégico, consternado, oportuno. Perfectamente cronometrado para no perder el estilo y, si te están viendo, que aparezcas en la imagen más espiritual de siempre.
-
-Y lo más aterrador de todo esto es que adentro... no está pasando absolutamente nada. ¡Ni tú te la creés, pues!
-
-Tu cuerpo ejecuta la coreografía completa de la adoración contemporánea con una precisión que daría envidia a cualquier actor de teatro. Pero tu espíritu está en otro lugar. Revisando la semana. Calculando el dinero. Preguntándose qué se va a almorzar después del servicio. El partido de fútbol, o pensando en alguna persona, etc. Todo menos lo único que debería estar haciendo: encontrarse cara a cara con el DIOS VIVO que llenó ese templo con Su Gloria antes de que tú llegaras con el disfraz puesto.
-
-A veces levantás las manos al cielo en señal de rendición total. Es un gesto hermoso. Poético, incluso. 
-
-Pero tu voluntad —esa voluntad terca, orgullosa y no rendida que lleva años cómodamente sentada en el trono de tu propia vida— no se movió ni un centímetro. Tus manos apuntan al cielo y tu ego sigue tan instalado como siempre. Una raya más al tigre, y el tigre sin inmutarse.
-
-Y luego cantás. ¡Y qué letras! 
-
-*"Todo lo que soy te lo entrego a ti, mi SEÑOR."* 
-
-Las cantás con el pecho lleno, con convicción, con volumen suficiente para que todos los que están a tu alrededor te escuchen. Pero te pregunto —y quiero que te lo preguntes sin esquivarlo, ahí donde estás, con esa canción sonando— ¿cuándo fue la última vez que esa letra fue también la declaración honesta de tu lunes? ¿De tu martes? ¿De tu viernes por la noche cuando ya no había nadie mirando?
-
-Porque ahí está el fondo del asunto. 
-
-La adoración que DIOS busca no es la que suena hermosa desde afuera. Es la que duele desde adentro. Es la que cuesta algo. La que nace de un corazón que llega al templo con hambre real, con honestidad real, diciéndole al SEÑOR la verdad sobre su condición, honesto y genuino, sin adornos ni actuación. Eso es adoración. 
-
-Lo demás —lo tuyo, lo que practicás con tanta disciplina cada domingo— tiene un nombre más preciso: performance dominical.
-
-Y lo más trágico no es que seas mal actor. Lo más trágico es que ya no sabés cuándo estás actuando y cuándo no. El disfraz lleva tanto tiempo pegado a tu piel que ya perdiste la noción de dónde termina la máscara y dónde empezás tú. 
-
-Cantás *"rindo todo"* con los ojos cerrados y el gesto de la entrega máxima... y no hay fuego. No hay brisa del cielo. No hay ni el más mínimo susurro de la eternidad rozando tu alma. Solo el eco vacío de tu propia voz, rebotando en las paredes pintadas del templo, sin llegar jamás al trono de la GRACIA.
-
-El cielo escucha. Siempre escucha. 
-
-Pero hay una diferencia enorme —una diferencia que el ESPÍRITU SANTO conoce perfectamente— entre el ruido que sube desde un corazón entrenado... y el clamor que sube desde un corazón rendido de verdad. Y esta mañana, mientras terminás de afinar la última nota de tu actuación, el cielo ya sabe de cuál de los dos es el tuyo.
-
-Bueno, terminaron las alabanzas, tal vez hay anuncios y, bueno, él sube, empieza y el pastor abre la Biblia. Y tú te acomodás en tu silla.
-
-Ese gesto —ese pequeño ajuste de postura en el asiento— lo dice todo sobre ti en este momento. No te inclinás hacia adelante con el hambre del que sabe que lo que está a punto de recibir es una palabra de DIOS capaz de cambiar su vida. No. 
-
-Entonces te recostás. Te acomodás. Cruzás las piernas si el espacio lo permite. Porque para ti, este momento no es el encuentro más importante de tu semana. Es la última parada de tu obligación dominical. Y toca cumplirla con la misma eficiencia tranquila con que cumpliste todas las anteriores.
-
-Y entonces... comenzás a "escuchar".
-
-El pastor predica con fervor genuino como lo hacía mi papá. Las palabras de la Escritura salen de su boca como bisturís diseñados por el propio cielo para penetrar, para cortar, para sanar lo que en ti lleva demasiado tiempo enfermo. Penetrar los tuétanos como dice la escritura.
-
-Y cito, Hebreos 4:12: 
-*"Porque la palabra de Dios es viva y eficaz, y más cortante que toda espada de dos filos; y penetra hasta partir el alma y el espíritu, las coyunturas y los tuétanos, y discierne los pensamientos y las intenciones del corazón."*
-
-Pero en tu caso —justo campeón, en tu caso específico, querido amigo— esas palabras no penetran nada. No porque sean débiles. Sino porque tú has construido, con años de paciente religiosidad, una coraza tan gruesa alrededor de tu conciencia que la espada del ESPÍRITU rebota en ella como si golpeara un muro grueso de cemento. Sin rasguños. Sin marcas. Sin consecuencias.
-
-Acordate que Dios respeta tus decisiones. Si tú no querés que penetre, es decisión tuya, y así no penetra, tata.
-
-Asentís con la cabeza. Eso sí. Con la cadencia justa. No tanto que parezcas exagerado, no tan poco que parezcas distraído. El "Amén" lo soltás en la pausa estratégica correcta, ponés cara de atento como muy interesado, en ese instante preciso en que el pastor hace una afirmación poderosa y la mitad del auditorio responde. 
-
-Tu "Amén" es puntual, sonoro, convincente. Anotás un par de puntos en tu libreta —siempre la libreta, porque la libreta es evidencia visible de que estás siendo un buen alumno—. Aunque jamás la repasés en tu casita. Todo en ti comunica participación activa. Todo en ti es pura apariencia pero funciona.
-
-Porque en lo profundo de tu mente, el sermón no lo estás recibiendo para ti. Lo estás filtrando. Procesando. Aplicándolo mentalmente a los demás con la precisión clínica de un especialista doctor maduro cristiano que diagnostica enfermedades ajenas espirituales.
-
-No, si la Biblia la parafraseas bien cabalito.
-
-—"Esto es exactamente lo que el hermano de la fila de al lado necesitaba escuchar." 
-—"Ojalá mi cuñado estuviera aquí hoy, esto le cae perfecto." 
-—"¡Qué buena predicación para los jóvenes del ministerio!" 
-
-Tenés una habilidad asombrosa para recibir la Palabra de DIOS y redirigirla y torearla inmediatamente hacia cualquier dirección... excepto hacia ti.
-
-Así que sos un experto coleccionista de enseñanzas. Un archivador meticuloso de verdades Bíblicas. Pero un analfabeto completo en la única disciplina que de verdad importa: la obediencia. Solo calentás la silla con las nalgas mientras la Palabra de DIOS busca dónde aterrizar en ti y no encuentra ni una rendija abierta. 
-
-Tu conocimiento teológico engorda domingo a domingo, produciendo orgullo. Tu espíritu se muere de hambre. Mientras tu pantorrilla no deja de moverse en todo el culto.
-
-Y lo más escalofriante es que ya te acostumbraste a eso. 
-
-Ya normalizaste la paradoja de saber mucho sobre DIOS y conocerlo muy poco. Ya aprendiste a salir de cada sermón sintiendo que fue "una buena prédica" —como quien evalúa un programa de televisión—. Tal vez una palabra o una frase, si te pegó, y te “conmovió” un cachito, pero igual la dejaste pasar después de 4 minutos recordando que no le dejaste agua al chucho, o que el culto ya va a terminar. 
-
-¡De hecho termina en ese momento!
-
-El pastor: *"¡Pónganse de pie!"*, tal vez hace un llamado al frente, ves cómo pasan otros agachados compungidos, tú los ves chillando, cantan la última alabanza de despedida, luego oran y termina el culto, por fin, ni saludas al pastor y te salís al estacionamiento, saludás a algunos en la puerta con un genuino *"¡Qué tremenda palabra!"*, te subís a tu carro, o salís a la parada de bus a esperarlo, y tu vida secreta —esa realidad íntima que solo tú y DIOS conocen— continúa exactamente igual que antes de entrar.
-
-A veces sin un rasguño. Sin una marca. Completamente intacta la mayoría de veces.
-
-Y mientras tú vas de regreso a tu casa satisfecho con tu perfecto domingo cumplido, Dios y los ángeles y también algunos demonios solo te ven pasar yendo a tu casa. 
-
-El cielo observa en silencio la tragedia más paradójica del universo: un hombre que estuvo sentado frente a la Palabra viva de DIOS... y salió igual que como entró. No porque la Palabra haya fallado, no porque el pastor Lucas, o el pastor Walter Valle, o mi papá hayan predicado mal, sino porque el corazón del oyente decidió, una vez más, que esa Palabra era para alguien más.
-
-Tal vez tu caso es diferente. Tal vez no calentás la silla; al contrario, sos el que llega primero y se va último. El ujier. El músico. El líder de célula. El organizador que resuelve todo sin que nadie le pida nada. El que arma las sillas y las coloca, o la maestra de escuela dominical. La mano siempre levantada cuando se necesita un voluntario. Y te enorgullecés de eso. Con razón, dirán algunos.
-
-Pero dejame preguntarte algo incómodo: ¿cuándo fue la última vez que te postraste solo, en silencio, a adorar a DIOS sin que nadie te viera?
-
-Porque hay una diferencia enorme —una diferencia que el cielo conoce perfectamente— entre servir A DIOS y servir EN EL NOMBRE de DIOS para que te vean. Y muchos cruzaron esa línea hace años sin darse cuenta, y nunca miraron atrás.
-
-Tu servicio no nace de la intimidad con JESÚS. Nace del hábito. Del deseo de ser reconocido. De la necesidad silenciosa de justificar tu lugar en la congregación. O de solo participar pues. 
-
-Te convenciste de que "hacer cosas para DIOS" es equivalente a "conocer a DIOS". Pasás horas sirviendo de pie frente a todos, pero hace años que no te arrodillás en secreto a Sus pies. Y esa confusión te está costando el alma.
-
-Acordáte que en la Biblia no están asignados los puestos de ujieres, o maestros de escuela dominical ni de ordenar las sillas; esos son inventos del hombre, y esos puestos están buenos y aceptables. Pero en la Biblia la orden no es que si estás en sonido o en el coro o saludándolos como ujier en la puerta, o grabando el video de la prédica, eso jamás te eleva ni un tantito más cerca de Dios. ¡No, señor! 
-
-Ni mucho menos estar en la escuela dominical dando clase; tampoco eso te hace más espiritual, ni que seas tú el que da los anuncios, esa no fue nunca jamás la orden. Y me atrevo a decir que te ayuda más a mejorar tu espiritualidad lavar los inodoros de la iglesia después del culto, que recoger la ofrenda o estar en el sonido o ser ujier en la puerta. ¡NOMBRE!
-
-Si sos un fariseo disfrazado, tú decime: 
-¿Qué les vas a transmitir a los niños de la escuela dominical? 
-¿O qué saludo falso vas a dar en la puerta como ujier? 
-
-Decime, si no estás a pulso con tu Dios, ¿qué vas a dar de Dios? Decime, ayudame a comprenderte: si no estás por el Señor, ¿qué vas a dar y transmitir a los demás en tu vida diaria?
-
-Y esta pregunta sí nos acerca a la orden y misión que Jesús nos dejó antes de irse, allí está en la Biblia.
-
-¡Así que vaya! Aquí está la prueba sin disfraces: si mañana te quitaran el micrófono, el título, el puesto de liderazgo... ¿qué quedaría de tu identidad cristiana? Si la respuesta tarda en llegar, ya tenés la respuesta.
-
-Tu fuego interno se apagó hace ratos. Pero seguís manteniendo la chimenea encendida con leña ajena y rescoldos apagándose —con el entusiasmo de los nuevos, con la emoción del domingo, con la gracia que tomás prestada porque la tuya ya no alcanza. 
-
-Sos una Marta de esta época: manos siempre ocupadas, corazón siempre ausente, un ojo allá, un ojo aquí, pero más enfocado en el servicio que en tu salvación.
-
-Y DIOS, que jamás fue impresionado por el activismo religioso y falso, sigue esperando lo que siempre quiso. No tu agenda ministerial llena de ayuda y compromisos y eventos en la iglesia. Él sigue esperando tu corazón. Verdaderamente rendido. Solo. A Sus pies.
+Si mañana te quitaran el micrófono o el puesto de liderazgo... ¿qué quedaría de tu identidad cristiana? Si la respuesta tarda en llegar, ya tenés la respuesta, compadre. DIOS sigue esperando lo que siempre quiso: un corazón verdaderamente rendido. Solo. A Sus pies.
 
 
 ---
@@ -603,87 +226,35 @@ JESÚS no fue ejecutado por los borrachos ni por las prostitutas de Galilea. Fue
 
 —"¡Ay de vosotros, escribas y fariseos, hipócritas! Porque sois semejantes a sepulcros blanqueados, que por fuera, a la verdad, se muestran hermosos, pero por dentro están llenos de huesos de muertos y de toda inmundicia." (Mateo 23:27)
 
-detenete un momento ahí, amigo querido. Porque esa no es una condena arqueológica para gente que murió hace dos mil años. Esa frase fue escrita para ti. 
+Detenete un momento ahí, amigo querido. Porque esa no es una condena arqueológica para gente que murió hace dos mil años. Esa frase fue escrita para ti. 
 
-Para el que cada domingo pule el mármol exterior de su reputación cristiana con mucho esmero, asegurándose de que nadie sospeche jamás lo que hay detrás del escaparate. Has invertido la mayor parte de tu vida cristiana en la jardinería de tu propia tumba. El diezmo puntual, la asistencia impecable, el vocabulario espiritual bien afinado, la postura correcta durante la adoración... Todo eso es pintura blanca sobre las paredes de un sepulcro. 
+Para ti, que cada domingo pulís el mármol exterior de tu reputación cristiana con esmero, asegurándote de que nadie sospeche lo que hay detrás del escaparate. El diezmo puntual, la asistencia impecable, el vocabulario espiritual afinado... Todo eso es pintura blanca sobre las paredes de tu propio sepulcro. A los ojos de los hombres sos un monumento admirable, pero cuando la mirada de DIOS atraviesa ese mármol, no encuentra vida. Encuentra el hedor silencioso de la muerte.
 
-A los ojos de los hombres, sos un monumento digno de admiración. Pero cuando la mirada de DIOS atraviesa ese mármol de religiosidad, lo que encuentra adentro no es vida. Es el hedor silencioso de la muerte.
+Nadie se convierte en fariseo de la noche a la mañana. Fue un proceso de adaptación sumamente conveniente. Cuando entraste a la iglesia, descubriste un molde que garantizaba la aceptación del grupo. Y con la habilidad de un camaleón espiritual, aprendiste a mimetizarte. Aprendiste a actuar santidad mucho antes de que la santidad real morara en ti.
 
-Nadie se convierte en fariseo de la noche a la mañana, amigo. Fue un proceso de adaptación lenta y sumamente conveniente. Cuando entraste a la iglesia, descubriste rápidamente que existía un molde ya hecho, un patrón de conducta que garantizaba la aceptación del grupo. Y con la habilidad de un camaleón espiritual, aprendiste a mimetizarte perfectamente. 
+En el sistema que abrazaste, la santidad dejó de ser una naturaleza divina para convertirse en una estética. Te convenciste de que ser santo es no cometer errores que puedan destruir tu reputación eclesiástica. Sin escándalo que suene por los pasillos. Y con eso sentís que ya la hiciste.
 
-Aprendiste qué decir, cómo orar, qué postura adoptar cuando el pastor llama al altar. No fue transformación interna obrada por el ESPÍRITU SANTO. Fue entrenamiento conductual. Puro y simple. Aprendiste a actuar santidad mucho antes de que santidad alguna morara en ti.
+Pero la prueba irrefutable de tu autoengaño está en tu lunes por la mañana. 
 
-Y lo más aterrador, querido amigo... es que ya ni recordás cuándo empezaste a perder la línea entre la persona que realmente sos y el personaje que tan bien aprendiste a interpretar.
+Ahí, donde nadie te ve, el disfraz cae. El mismo hombre que levantaba las manos el domingo, el lunes amanece irritable y completamente ajeno a la presencia de DIOS. Esa doble vida esquizofrénica entre el cristiano del domingo y el hombre real del lunes es la evidencia contundente de que el ESPÍRITU SANTO no te gobierna. 
 
-Hay algo más que necesitás entender sobre tu condición. No te basta con saber que la fachada existe. Necesitás entender qué tiene adentro.
+En lo más profundo sabés perfectamente que hay un abismo entre tú y DIOS. Y en lugar de arrodillarte ante esa verdad, decidiste sobornar al cielo con tus buenas obras. Creés que tu agenda repleta de voluntariado y tus ofrendas puntuales van a anular la podredumbre de un corazón que nunca ha nacido de nuevo.
 
-En el sistema que abrazaste, la santidad dejó de ser una naturaleza divina implantada por el ESPÍRITU SANTO para convertirse en algo mucho más manejable y cómodo: una estética. Una imagen personal finamente construida. Una marca cristiana que administrás con calculadora. 
+¡Lamento decirte que NO FUNCIONA ASÍ, tata!
 
-Te convenciste de que ser santo es no cometer errores que puedan destruir tu reputación eclesiástica. Sin adulterio escandaloso. Sin borrachera visible. Sin escándalo que suene por los pasillos del templo. Eso es todo lo que necesitás para calificar como "hombre de DIOS" en tu propio tribunal privado.
+El JUEZ DEL UNIVERSO no está a la venta. Ningún diezmo ni hora de servicio puede sustituir lo que EL ESPÍRITU SANTO realmente exige: un corazón quebrado. Un espíritu contrito que llega sin currículum, con las manos vacías. Y tus obras carnales, como dice Isaías, son trapos de inmundicia frente a su trono. Solo son perfume que rociás para disimular el olor a mortecina de tu interior.
 
-Pero la santidad que DIOS busca no es la que gestionás. Es la que duele. La que nace de un corazón quebrado que lleva su podredumbre a la cruz sin maquillaje y sin excusas, porque no le importa si hay alguien mirando o no.
+La historia de Judas Iscariote no fue escrita solamente para registrar a un ladrón. Es la alarma más ensordecedora para el religioso que camina cerquita de JESÚS... sin jamás rendirse a ÉL y traicionándolo a cada rato. Judas escuchó la voz del Maestro, vio milagros con sus propios ojos, y aun así, algo tenebroso dentro de él nunca quiso morir. 
 
-La prueba irrefutable de tu autoengaño no está en el altar del domingo. Está en tu lunes por la mañana. 
+Esa es la mera mata donde se rasca el tigre del fariseísmo. Podés tener el mejor puesto, manejar el vocabulario de Sión al derecho y al revés, pero si no hay quebrantamiento, tu corazón sigue estacionado en el mismo abismo. Agarraste la sana doctrina y la convertiste en un refugio blindado para disfrazar tu sequía. 
 
-Ahí, donde nadie te ve, es donde el disfraz cae solo. Ese mismo hombre que levantaba las manos el domingo con expresión de entrega total, el lunes amanece irritable, exigente, completamente ajeno a la presencia de DIOS. El que predicaba mansedumbre en el culto, en la intimidad de su casa es un pequeño tirano. El que hablaba de pureza frente a todos, en la oscuridad de sus noches alimenta lo que jamás confesaría desde ningún púlpito.
+Sos una enciclopedia caminando; corregís versículos, debatís teología y te la picás de erudito... pero tenés el corazón más duro que pata de perro callejero. Hace años que no sabés lo que es doblar las rodillas a solas, a puerta cerrada, y llorar con la nariz pegada al piso buscando la presencia de DIOS de verdad. ¡Vos solito, pues! Eres un experto religioso de vitrina, pero un analfabeto en la intimidad con el ESPÍRITU SANTO.
 
-Esa fractura que cargás, esa doble vida esquizofrénica entre el cristiano del domingo y el hombre real del lunes, no es un "área de mejora". Es la evidencia más contundente de que el ESPÍRITU SANTO no gobierna tu vida interior. Aprendiste a comportarte como alguien transformado... sin haberte transformado jamás.
+Pero escuchame bien. Si al leer estas crudas palabras sentís que algo te retuerce por dentro, no te desanimés. Esa incomodidad no es rechazo; es la pura misericordia del cielo dándote una sacudida para despertarte. 
 
-Y esa diferencia, amigo querido, es exactamente la diferencia entre actuar para los hombres y vivir delante de DIOS.
+Si te aprieta el zapato y te incomoda, sabiendo que es verdad, es porque EL ESPÍRITU SANTO te está samaquiando. Mientras más rápido te arranqués ese disfraz, mientras más pronto dejés de creerte la divina garza de tu congregación y reconozcás tu necesidad, más rápido vas a respirar la libertad de un verdadero hijo perdonado. 
 
-En lo más profundo de tu conciencia, sabés perfectamente que hay un abismo entre tú y DIOS. Lo sabés. Esa voz del ESPÍRITU SANTO que te despertá en la madrugada y te confronta en el silencio no es un invento tuyo. Es real. Y duele.
-
-Pero en lugar de arrodillarte delante de esa verdad, decidiste algo mucho más conveniente: sobornar al cielo con tus buenas obras.
-
-Te ofrecés de voluntario en cada evento de la iglesia. Tus diezmos son puntuales. Tus ofrendas muy visibles, tus primicias sepa Judas. Tu agenda está repleta de causas nobles con nombre SUPER-CRISTIAN. Y en algún rincón secreto de tu razonamiento, creés que todo ese impresionante currículum religioso va a anular la podredumbre de un corazón que nunca ha nacido de nuevo. 
-
-Como si DIOS llevara una contabilidad de doble entrada donde tus horas de servicio cancelan tu rebelión interna.
-
-Y aunque tú creas que es así... lo lamento campeón, pero:
-
-—¡NO FUNCIONA ASÍ!
-
-Pero dejame decírtelo con la claridad que este momento pide y merece: tus obras, por más agotadoras y loables y extraordinarias que parezcan ante los hombres, son como trapos de inmundicia frente al trono de un DIOS TRES VECES SANTO. (Isaías 64:6). 
-
-No son el fruto genuino de un corazón transformado que da gracias por haber sido salvo. Son el perfume desesperado que rociás cada semana para disimular el olor a muerte espiritual que emana de tu interior.
-
-Estás tapando tu rebelión interna con activismo externo. Y esa, mi querido hermano, es precisamente la táctica más antigua de la religión carnal.
-
-El JUEZ DEL UNIVERSO no está a la venta, compadre. Ningún diezmo, ninguna primicia, ninguna hora de servicio, ningún sacrificio eclesiástico puede sustituir lo que EL ESPÍRITU SANTO realmente exige: un corazón quebrado. 
-
-Un espíritu contrito que llega sin currículum, sin logros y sin historial impresionante. Que llega con las manos vacías y el alma rendida.
-
-Y eso, precisamente eso, es lo que todavía no has podido entregar.
-
-Acordate, ya tenés la llave, que es JESÚS, ¿pero?
-¿Y EL ESPÍRITU SANTO, PUES? 
-Al final de cuentas, hermano, el que se quedó con nosotros fue EL ESPÍRITU SANTO.
-
-Vuelvo y repito, como dice la Biblia: JESÚS ES LA LLAVE, EL ÚNICO CAMINO, pero el camino es EL ESPÍRITU SANTO, ¡y hay que avanzar y recorrerlo!
-
-Y a eso vamos más adelante.... pero antes, presta atención:
-
-La historia de Judas Iscariote no fue escrita solamente para registrar la caída de un ladrón. Fue dejada en la Escritura como la alarma más ensordecedora para todo religioso que aprende a caminar cerquita de JESÚS... sin jamás rendirse a ÉL y traicionándolo a cada rato.
-
-Pensalo con frialdad. Judas escuchó la voz del Maestro. Caminó codo a codo con el SALVADOR. Vio con sus propios ojos cómo los muertos salían de la tumba. Y aun así... algo tenebroso dentro de él nunca quiso morir. 
-
-Esa es la mera mata donde se rasca el tigre del fariseísmo: podés tener el mejor puesto en el ministerio, manejar el vocabulario de Sión al derecho y al revés, pero si no hay quebrantamiento, tu corazón sigue estacionado en el mismo abismo. Y es por demás, no se mueve.
-
-Y aquí es donde la puerca tuerce el rabo, querido amigo. Es decir, donde se pone fea la cosa, ¡pues! Porque agarraste la sana doctrina y la convertiste en un escondite de lujo. Un refugio blindado para disfrazar tu sequía espiritual. 
-
-Tú sos una enciclopedia caminando; corregís versículos, debatís de teología y te la picás de erudito... pero tenés el corazón más duro que pata de perro callejero. Hace años que no sabés lo que es doblar las rodillas a solas, a puerta cerrada, y llorar con la nariz pegada al piso buscando la presencia de DIOS íntimamente de verdad. ¡Vos solito pues! 
-
-Eres un experto religioso de vitrina, pero un analfabeto en la intimidad con el ESPÍRITU SANTO.
-
-Pero escuchame bien, y abrí los oídos de tu alma. Si al leer estas crudas palabras sentís que algo te retuerce por dentro, no te desanimés. Esa incomodidad no es rechazo; es la pura misericordia del cielo dándote una sacudida para despertarte. 
-
-Es el ESPÍRITU SANTO hablándote, diciéndote que no te ha soltado. Es decir: si te aprieta el zapato y lo sentís, y te incomoda, sabiendo que es verdad, entonces es porque EL ESPÍRITU SANTO te está moviendo y samaquiando, sacudiéndote pues, y ves una esperanza de quitarte el disfraz de fariseo y el cómo hacerlo, así que ya te lo voy a explicar compadre más adelante.
-
-Mientras más rápido te arranqués ese disfraz, mientras más pronto dejés de creerte la divina garza de tu congregación y reconozcás tu miseria, más rápido vas a respirar la libertad de un verdadero hijo perdonado. Porque créemelo, hay una salida gloriosa. Hay vida real más allá de esa religión seca. Y el REY, con todo y tu hipocresía pasada, todavía sigue llamándote.
-
-Ya vas a ver, te voy a mostrar más adelante cómo respetar a tu Rey, a tu Dios.
----
-
+Hay una salida gloriosa, compadre. Y el REY, con todo y tu hipocresía pasada, todavía sigue llamándote. Ya vas a ver, te voy a mostrar más adelante cómo respetar y encontrarte con tu Dios de verdad.
 ## CAPÍTULO 4 — "El día que la presencia se fue"
 
 
